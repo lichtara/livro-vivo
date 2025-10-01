@@ -1,0 +1,3 @@
+# Introdução – Parágrafo 2 (esboço)
+
+No cenário atual, as comunidades enfrentam desafios crescentes: fragmentação social, polarização, crises de confiança e estruturas que muitas vezes sufocam a criatividade e a cooperação. Modelos tradicionais de organização revelam limites quando não consideram as dimensões sutis que sustentam a vida coletiva. É nesse contexto que se torna essencial investigar o **Campo Informacional** como fundamento invisível da coesão comunitária. Ao reconhecer que cada grupo humano vibra em um campo de significados, emoções e símbolos compartilhados, abre-se espaço para compreender as **Comunidades Sistêmicas** como organismos vivos, capazes de se auto-organizar a partir da ressonância entre seus membros e do propósito que os une.

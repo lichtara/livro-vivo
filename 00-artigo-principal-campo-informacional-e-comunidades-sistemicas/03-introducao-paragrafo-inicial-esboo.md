@@ -1,0 +1,5 @@
+# Introdução – Parágrafo inicial (esboço)
+
+As comunidades humanas sempre foram mais do que a soma de seus indivíduos. Há um **tecido invisível de informação e consciência** que conecta pessoas, sustenta vínculos e orienta ações coletivas. Esse tecido pode ser descrito pela ciência como *campo informacional* e, pela experiência vibracional, como **Campo vivo**. A investigação deste trabalho parte do encontro entre teoria e prática: de um lado, referenciais como Bohm, Sheldrake, Laszlo e Teilhard de Chardin; de outro, a vivência no **Instituto Lichtara**, onde o Campo é percebido e cultivado de forma experiencial. Assim, busca-se compreender como esse Campo Informacional pode sustentar o que chamamos de **Comunidades Sistêmicas** — grupos humanos que se organizam não apenas por estruturas formais, mas por ressonância, presença e propósito compartilhado.
+
+---
