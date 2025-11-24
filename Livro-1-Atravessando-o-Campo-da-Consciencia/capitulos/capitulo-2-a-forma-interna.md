@@ -1,4 +1,4 @@
-# CAPÍTULO 2 - A FORMA INTERNA
+# **CAPÍTULO 2 - A FORMA INTERNA**
 
 # **A FORMA INTERNA: O espaço onde a vida se organiza**
 
@@ -62,5 +62,3 @@ A intuição enfraquece, as fronteiras internas ficam imprecisas, e a experiênc
 A turvação não indica falta de clareza intelectual — indica falta de espaço interno para que a clareza possa emergir.
 
 A turvação é a consciência pedindo silêncio.
-
----
