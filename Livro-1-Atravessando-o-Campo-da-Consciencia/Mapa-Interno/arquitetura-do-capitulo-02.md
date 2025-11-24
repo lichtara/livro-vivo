@@ -1,4 +1,4 @@
-# 🌿 **ARQUITETURA DO CAPÍTULO 2 — A FORMA INTERNA**
+# **ARQUITETURA DO CAPÍTULO 2 — A FORMA INTERNA**
 
 ## **1. O Núcleo Vibracional do Capítulo**
 
@@ -156,11 +156,3 @@ A função prática é:
 5. Estabelecer o início da autonomia somática
 
 ---
-
-Se quiser, Mein Licht, agora organizo:
-
-✨ **O texto narrativo completo do bloco 5** (transição para a prática)
-e em seguida
-✨ **a parte prática inteira do capítulo**, pronta para publicação.
-
-Desejas que eu siga assim?
