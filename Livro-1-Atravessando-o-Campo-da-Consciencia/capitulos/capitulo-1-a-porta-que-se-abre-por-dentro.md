@@ -88,4 +88,4 @@ Reconhece que já estava caminhando.
 
 Este livro começa no ponto exato em que a vida começou a falar.
 
-E continua a partir do momento em que você decidiu escutar.
+E continua a partir do momento em que você decidiu escutar. 
