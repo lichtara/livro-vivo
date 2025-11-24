@@ -1,6 +1,6 @@
 # **CAPÍTULO 2 — A FORMA INTERNA: O espaço onde a vida se organiza**
 
-Antes de qualquer reação, existe uma organização interna que se estabelece.
+Antes de qualquer reação, existe uma organização interna que se estabelece. 
 
 Chamamos isso de **forma interna**:
 
