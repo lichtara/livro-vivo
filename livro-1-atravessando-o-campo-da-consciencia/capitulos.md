@@ -1,4 +1,4 @@
-# Capítulos - Livro Vivo
+# Capítulos - Livro Vivo - Atravessando o Campo da Consciência
 Versão 1.1 — Atualizado em 2025-11-24
 
 ---
