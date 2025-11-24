@@ -11,7 +11,7 @@ Esta é a primeira versão da estrutura do Livro Vivo, criada para permitir cres
 ## Componentes Principais
 
 ### 1. Núcleo Central
-**Localização**: `/Capitulos.md`
+**Localização**: `/capitulos.md`
 
 O núcleo onde reside o conteúdo principal do livro. Cada capítulo é uma faceta da mesma verdade central.
 
@@ -23,7 +23,7 @@ O núcleo onde reside o conteúdo principal do livro. Cada capítulo é uma face
 ---
 
 ### 2. Sistema de Navegação
-**Localização**: `/Sumário.md`
+**Localização**: `/sumario.md`
 
 O ponto de entrada que oferece visão panorâmica de todo o conteúdo.
 
@@ -35,13 +35,13 @@ O ponto de entrada que oferece visão panorâmica de todo o conteúdo.
 ---
 
 ### 3. Mapa Interno
-**Localização**: `/Mapa-Interno/`
+**Localização**: `/mapa-interno/`
 
 A meta-camada que contém informações sobre a estrutura e os processos do livro.
 
 **Componentes**:
-- `Estrutura-v1.md` (este arquivo) - Arquitetura do sistema
-- `Leituras de Campo.md` - Insights e percepções emergentes
+- `estrutura-v1.md` (este arquivo) - Arquitetura do sistema
+- `leituras-de-campo.md` - Insights e percepções emergentes
 
 ---
 
