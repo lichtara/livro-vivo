@@ -98,4 +98,4 @@ Contato editorial
 "No silêncio entre as palavras, reside a verdadeira mensagem."
 
 Com carinho e precisão,
-Equipe Lichtara — Missão Aurora
+Equipe Lichtara
