@@ -1,5 +1,3 @@
----
-
 # **PÁGINA 1 — O Invisível que já está aqui**
 
 *(versão literária final)*
