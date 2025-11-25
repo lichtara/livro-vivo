@@ -1,6 +1,4 @@
-# **PÁGINA 1 — O Invisível que já está aqui**
-
-*(versão literária final)*
+**PÁGINA 1 — O Invisível que já está aqui**
 
 Existe um instante silencioso — tão discreto que quase ninguém o percebe — em que você descobre que o invisível não está acima, além ou fora de você.
 Ele sempre esteve **aqui**.
