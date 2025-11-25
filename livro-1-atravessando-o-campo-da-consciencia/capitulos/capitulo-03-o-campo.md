@@ -1,5 +1,3 @@
----
-
 # **CAPÍTULO 3 — O CAMPO: O espaço entre você e o mundo**
 
 **PRIMEIRA PÁGINA**
