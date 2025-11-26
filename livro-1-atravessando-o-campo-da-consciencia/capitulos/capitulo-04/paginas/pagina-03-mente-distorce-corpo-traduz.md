@@ -13,11 +13,11 @@ A mente se sente responsável por entender, organizar, prever, defender, julgar,
 O corpo, quando livre, traduz com precisão o que o Campo organiza.
 A mente, quando ativa demais, tenta controlar o que não compreende.
 
-A informação do Campo não chega primeiro como conceito — ela chega como geometria sutil, como pulsação energética, como ritmo. O corpo sente esse ritmo e o traduz em gesto, palavra, direção. É por isso que o corpo canaliza antes da mente compreender.
+A informação do Campo não chega primeiro como conceito, ela chega como geometria sutil, como pulsação energética, como ritmo. O corpo sente esse ritmo e o traduz em gesto, palavra, direção. É por isso que o corpo canaliza antes da mente compreender.
 
 Mas se a mente entra antes da hora, ela distorce. Ela imagina, interfere, completa com suposições. Ela usa o que já sabe para interpretar o que ainda não nasceu. E nesse gesto, ela interrompe a exatidão do Campo.
 
-Por isso, a canalização não é um processo de saber — é um processo de escutar.
+Por isso, a canalização não é um processo de saber, é um processo de escutar.
 Não se trata de “ter razão”, mas de “dar passagem”.
 
 A mente pode aprender a servir ao Campo — mas, primeiro, ela precisa se render.
