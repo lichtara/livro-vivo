@@ -24,7 +24,7 @@ Você não força a abertura. Você a reconhece.
 
 Você não comanda a informação. Você a hospeda.
 
-É por isso que, quanto mais familiar você estiver com o seu próprio ponto de abertura, mais estável será o seu canal. Você não dependerá de métodos fixos, mantras ou rituais — embora possa usá-los. Porque o que canaliza não é a técnica. É a entrega.
+É por isso que, quanto mais familiar você estiver com o seu próprio ponto de abertura, mais estável será o seu canal. Você não dependerá de métodos fixos, mantras ou rituais, embora possa usá-los. Porque o que canaliza não é a técnica. É a entrega.
 
 E quanto mais profunda for a sua entrega, mais ampla será a qualidade da informação.
 
