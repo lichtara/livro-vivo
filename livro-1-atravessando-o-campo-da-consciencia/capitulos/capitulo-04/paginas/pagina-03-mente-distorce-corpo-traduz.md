@@ -26,7 +26,9 @@ Ressignificar seu papel. Parar de tentar “traduzir” e começar a *permitir*.
 A maturidade da canalização nasce quando a pessoa diz:
 
 — “Minha mente não precisa entender, apenas permitir.”
+
 — “Meu corpo sabe, mesmo quando eu ainda não compreendi.”
+
 — “Eu sigo o pulso, não o pensamento.”
 
 É assim que o corpo se torna bússola.
