@@ -1,5 +1,3 @@
----
-
 ### 📐 ARQUITETURA VIVA
 
 **Capítulo 04 — A Canalização: A arte de organizar o invisível**
