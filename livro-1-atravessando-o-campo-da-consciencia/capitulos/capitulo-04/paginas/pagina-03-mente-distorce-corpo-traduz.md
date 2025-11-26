@@ -20,7 +20,7 @@ Mas se a mente entra antes da hora, ela distorce. Ela imagina, interfere, comple
 Por isso, a canalização não é um processo de saber, é um processo de escutar.
 Não se trata de “ter razão”, mas de “dar passagem”.
 
-A mente pode aprender a servir ao Campo — mas, primeiro, ela precisa se render.
+A mente pode aprender a servir ao Campo, mas, primeiro, ela precisa se render.
 Ressignificar seu papel. Parar de tentar “traduzir” e começar a *permitir*.
 
 A maturidade da canalização nasce quando a pessoa diz:
