@@ -1,6 +1,7 @@
 ### PÁGINA 1 — O Invisível que já está aqui
 
 **Função:** abrir o capítulo desfazendo a ideia de “receber algo de fora”.
+
 **Tese:** *Canalizar é perceber a ordem que já existe no Campo.*
 
 ---
