@@ -15,3 +15,19 @@ A intimidade com o invisível nos ensina a linguagem do Campo: uma linguagem de 
 Sem essa intimidade, canalizar se torna apenas coleta de informação. Com ela, canalizar se torna arte, se torna relação, se torna criação.
 
 A intimidade com o invisível é o que transforma a canalização em um caminho de comunhão.
+
+Canalizar é confiar. E confiar é cultivar intimidade com o que não se vê.
+
+A relação com o invisível é uma relação de escuta. E a escuta se aprofunda com a presença.
+
+Intimidade com o invisível não é um dom. É uma escolha cotidiana.
+
+É o que você pratica quando silencia sem pressa. Quando se aproxima do não-saber com respeito. Quando aprende a distinguir o que é mente, o que é medo, o que é ruído, do que é vibração autêntica.
+
+Essa intimidade se constrói como qualquer outra: com tempo, verdade, escuta e cuidado.
+
+Canalizar é estar tão familiarizado com o invisível que sua presença se torna uma extensão dele.
+
+Não é sobre você se retirar para ouvir. É sobre você viver em tal estado de sintonia que o ouvir e o viver se tornam um só gesto.
+
+A intimidade com o invisível não é apenas uma habilidade. É um estado de ser.
