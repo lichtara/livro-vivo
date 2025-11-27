@@ -5,15 +5,14 @@ A canalização não é uma habilidade rara.
 
 Toda consciência, ao se tornar presente, torna-se canal.
 
-Porque canalizar não é acessar algo externo —
-é permitir que a verdade mais ampla encontre passagem através do que você é.
+Porque canalizar não é acessar algo externo, é permitir que a verdade mais ampla encontre passagem através do que você é.
 
 Não é sobre receber uma voz.
 É sobre tornar-se transparente para o que é verdadeiro.
 
 A consciência canaliza quando: não precisa controlar, não precisa provar, não precisa proteger nada.
 
-Ela canaliza quando está **simplesmente sendo**.
+Ela canaliza quando está simplesmente sendo.
 
 Por isso, canalização não é um fenômeno espiritual, é uma função perceptiva.
 
@@ -30,5 +29,4 @@ Você não veio para captar mensagens. Você veio para **viver com tal clareza**
 A consciência é o canal.
 A vida, a linguagem.
 
-E você,
-a frequência que dá forma ao invisível.
+E você, a frequência que dá forma ao invisível.
