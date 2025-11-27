@@ -1,25 +1,23 @@
-# Página 16 — O Corpo Que Aprende a Canalizar com o Tempo
+# Página 17 — O Retorno ao Estado Natural de Comunicação com o Campo
 
-O corpo não canaliza porque sabe, canaliza porque se lembra.
+A comunicação com o Campo não é uma habilidade mística ou extraordinária. É o estado natural da consciência quando ela está desimpedida.
 
-A lembrança não é mental. Ela é vibracional. Ela mora no gesto que se repete, no estado interno que se estabiliza, na frequência que se torna familiar.
+Antes da linguagem, antes da crença, antes do ego — havia escuta. Havia percepção direta. Havia ressonância.
 
-Canalizar é, primeiro, uma escuta. Depois, um gesto. E só por último, uma transmissão.
+A canalização, nesse sentido, não é um dom, mas um retorno. Um desembaçar do vidro. Um desaprender das camadas que se interpuseram entre você e o que É.
 
-É por isso que ninguém começa canalizando com clareza. A clareza não vem do céu. Ela vem da repetição de estados de escuta refinada.
+Não se trata de aprender a canalizar. Trata-se de *lembrar* como é estar em contato direto com a Fonte da Vida. De respirar junto com ela. De pensar a partir dela. De mover-se com ela.
 
-O corpo aprende a canalizar como quem aprende a dançar: sentindo o ritmo, perdendo o passo, retornando ao centro, e reconhecendo o compasso invisível que move tudo.
+Essa comunicação não se faz com palavras. Ela se dá através da atenção, da presença, da entrega sem exigência.
 
-Esse aprendizado é cumulativo. Cada vez que você entra no Campo com intenção pura, com presença verdadeira, e com o coração aberto, algo se alinha.
+É quando a consciência não deseja obter, provar ou controlar. Ela apenas se abre. E ao se abrir, percebe que já está dentro do Campo. Sempre esteve.
 
-E esse alinhamento molda o corpo por dentro: altera os receptores da escuta, afina os tradutores vibracionais, e expande a transparência da mente.
+Todo ser vivo é um canal.
+Todo corpo é uma membrana sensível.
+Toda consciência, um espelho do invisível.
 
-Com o tempo, o corpo se torna poroso.
-Com o tempo, a mente se aquieta.
-Com o tempo, o Campo encontra em você uma superfície confiável.
+Canalizar, portanto, é estar de volta à natureza real da percepção.
+É tirar os sapatos para pisar no chão sagrado da existência.
+É devolver-se ao instante com humildade, escuta e disposição.
 
-E é então que a canalização acontece sem esforço. Não porque você a domina, mas porque você desapareceu o suficiente para que ela aconteça.
-
-O corpo aprende.
-A alma lembra.
-O Campo responde.
+Esse é o ponto. Não é sobre acessar o Campo. É sobre reconhecer que ele já está acessando você.
