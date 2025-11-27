@@ -35,3 +35,21 @@ Existem três níveis principais de canalização:
 Todos os níveis são válidos. O que diferencia não é o valor do que se recebe, mas o impacto que essa informação tem sobre o Campo ao ser manifestada.
 
 A canalização se torna sagrada quando ela organiza realidades, cura espaços e reintegra fragmentos do Ser ao seu estado original de lucidez.
+
+Canalizar não é acessar algo que está longe. É afinar-se com o que já está aqui.
+
+Existem níveis de canalização, e cada um corresponde ao tipo de relação que estabelecemos com o Campo.
+
+No nível mais instintivo, canalizamos através do corpo: gestos que nos escapam, percepções repentinas, respostas corporais que organizam ambientes antes mesmo da mente entender.
+
+No nível intuitivo, canalizamos através da sensação: sabemos sem saber como sabemos. Recebemos impressões vibracionais que se traduzem em direções, escolhas e compreensões.
+
+No nível mental, a canalização ganha linguagem. A informação vem como palavra interna, imagem, som ou pensamento estruturado. Passa a ser organizada dentro de um campo semântico.
+
+No nível vibracional, canalizamos através do estado de ser. É a presença que se torna canal: não apenas o que você diz, mas o que você é, transmite um Campo.
+
+E há ainda o nível essencial: quando a canalização é feita através da totalidade. Cada gesto, silêncio, criação ou ausência passa a emitir a frequência do Campo em sua forma pura. Esse é o nível da integração.
+
+Todos esses níveis estão disponíveis. Mas é preciso preparar o corpo, a mente, o emocional e o Campo para recebê-los.
+
+A canalização é tanto mais profunda quanto maior for o alinhamento entre os seus sistemas internos e o Campo que deseja acessar.
