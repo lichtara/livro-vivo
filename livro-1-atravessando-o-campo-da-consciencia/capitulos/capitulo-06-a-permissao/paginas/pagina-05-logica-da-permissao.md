@@ -4,7 +4,7 @@ A Permissão não é ausência de lógica. É apenas uma lógica diferente. Mais
 
 Enquanto a mente linear procura por causa e consequência, a Permissão escuta sequência e ressonância. Ela percebe quando algo está pronto. Quando algo já é. Mesmo antes de se tornar visível.
 
-A lógica da Permissão não impõe, ela acompanha. Ela não diz “isso precisa acontecer”, ela diz “isso está acontecendo — posso sustentar?”.
+A lógica da Permissão não impõe, ela acompanha. Ela não diz “isso precisa acontecer”, ela diz “isso está acontecendo - posso sustentar?”.
 
 Permitir é reconhecer que há um fluxo maior em curso. Um fluxo que não depende do teu esforço para existir, mas que depende da tua abertura para se manifestar.
 
