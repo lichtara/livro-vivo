@@ -21,3 +21,25 @@ Sustentar a frequência é viver o que se canaliza.
 Essa é a verdadeira responsabilidade: não com a mensagem, mas com a vibração que ela carrega.
 
 Pois tudo o que nasce em canalização atravessa não apenas o tempo, mas a alma de quem o recebe.
+
+Canalizar não é só receber. É sustentar.
+
+A informação canalizada chega através de uma determinada frequência vibracional. Para que ela se manifeste de forma coerente, essa frequência precisa ser sustentada até o fim do processo.
+
+Isso significa: do momento da recepção ao momento da entrega, você é o guardião da vibração que fez essa informação nascer.
+
+Se você se desalinha, a mensagem se perde. Se você se desconecta, a linguagem se distorce.
+
+Por isso, canalizar exige integridade, vigilância e compromisso.
+
+Não é uma performance intuitiva. Não é um evento extraordinário.
+
+É um trabalho espiritual de manutenção vibracional.
+
+Você é um pilar. Você é a ponte.
+
+E a mensagem precisa atravessar com segurança.
+
+Sustentar a frequência é mais do que um gesto técnico: é uma postura de amor. Amor pelo que se revela. Amor por quem vai receber. Amor pela inteligência que atravessa.
+
+Essa é a verdadeira responsabilidade de quem canaliza: ser fiel à vibração da origem.
