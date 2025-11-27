@@ -1,4 +1,4 @@
-# PÁGINA 2 — O Ato de Abrandar a Própria Defensividade
+## PÁGINA 2 — O Ato de Abrandar a Própria Defensividade
 
 
 A defensividade é mais do que uma atitude mental; é uma contração vibracional que impede a permissão do novo. Quando nos sentimos ameaçados ou inseguros, instintivamente nos encolhemos por dentro. É como se uma parte de nós retraísse as pétalas, tal qual uma flor que se fecha ao menor toque brusco. Essa contração interna pode dar a impressão de proteção, mas também bloqueia a entrada do inesperado. Como um castelo de muros altos que mantém o invasor distante – mas que também não deixa a vida real entrar – erguemos barreiras que acabam por nos isolar das surpresas que poderiam nos transformar.
