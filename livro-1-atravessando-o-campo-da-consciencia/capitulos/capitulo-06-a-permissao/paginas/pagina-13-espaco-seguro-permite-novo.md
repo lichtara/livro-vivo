@@ -1,19 +1,15 @@
-##  Página 12 — A Aceitação Como Portal de Transformação
+## Página 13 — O Espaço Seguro Que Permite o Novo
 
-Nada se transforma enquanto está sendo resistido.
+O novo não entra onde há pressa, controle ou julgamento.
 
-A transformação começa no exato instante em que aquilo que é é reconhecido como tal, sem fuga, sem negação, sem guerra.
+Ele só se manifesta onde há espaço. E mais do que espaço externo, ele precisa de um espaço interno que seja seguro o bastante para acolhê-lo.
 
-Aceitar não é concordar. Aceitar é ver com inteireza. É dizer: “Sim, isso está aqui.” E nesse reconhecimento, a energia se movimenta.
+Segurança, nesse caso, não é rigidez nem blindagem. É suavidade estruturada. É firmeza tranquila. É um corpo que sustenta e uma consciência que não rejeita.
 
-A aceitação dissolve os nós. Ela cria espaço interno. Ela desarma o campo. Ela permite que o invisível trabalhe.
+O novo precisa ser recebido como se recebe algo frágil e sagrado. Sem exigir que ele chegue pronto, sem cobrar que ele se prove.
 
-Não se trata de passividade, mas de inteligência profunda. A inteligência de quem sabe que só pode mudar o que já foi plenamente acolhido.
+É preciso oferecer um chão vibracional onde ele possa crescer, revelar-se, adaptar-se, florescer.
 
-A aceitação é um portal porque só ela nos transporta para a frequência onde o novo pode entrar.
+Esse espaço seguro nasce de uma relação amorosa consigo. Quando você não se apressa, não se força, não se abandona,  você se torna um templo silencioso onde o novo pode pousar.
 
-É uma mudança de posição interna: de lutar contra para estar com. De tentar controlar para escutar.
-
-Tudo o que você aceitar de verdade começará, silenciosamente, a se reorganizar.
-
-Porque o Campo responde à coerência vibracional da presença.
+Nada que seja realmente novo chega por coerção. Ele chega quando você o permite. E você só permite quando se sente seguro para receber.
