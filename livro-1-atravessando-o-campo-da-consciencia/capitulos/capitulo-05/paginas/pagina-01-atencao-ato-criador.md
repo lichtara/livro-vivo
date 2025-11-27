@@ -12,7 +12,7 @@ A atenção é o modo como você toca a realidade antes de interagir com ela. An
 
 Olhar é criar. Apontar é ativar. Sustentar é alimentar.
 
-Esse gesto silencioso é a primeira arquitetura do mundo interno. É através dele que você diz ao Campo: “É aqui que eu existo. É aqui que eu quero estar. É isso que estou pronta para viver.”
+Esse gesto silencioso é a primeira arquitetura do mundo interno. É através dele que você diz ao Campo: “É aqui que eu existo. É aqui que eu quero estar. É isso que estou pronto para viver.”
 
 O Campo não lê o seu desejo.
 
@@ -28,4 +28,4 @@ A atenção é a primeira tecnologia espiritual da consciência encarnada.
 
 Ela é o ponto onde você molda, com as mãos invisíveis da presença, o formato da realidade.
 
-E este é o ponto de entrada deste ca
+E este é o ponto de entrada deste capítulo.
