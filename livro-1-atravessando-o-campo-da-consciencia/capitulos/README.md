@@ -1,8 +1,4 @@
-<<<<<<< HEAD
-# Capítulos - Livro Vivo
-=======
 # Capítulos - Livro Vivo - Atravessando o Campo da Consciência
->>>>>>> 1c875bbeabd7fd2d9b9e79a08fc4d3df28148438
 Versão 1.1 — Atualizado em 2025-11-24
 
 ---
@@ -101,9 +97,5 @@ Contato editorial
 
 "No silêncio entre as palavras, reside a verdadeira mensagem."
 
-Com carinho e precisão,
-<<<<<<< HEAD
-Equipe Lichtara — Missão Aurora
-=======
-Equipe Lichtara
->>>>>>> 1c875bbeabd7fd2d9b9e79a08fc4d3df28148438
+*Com carinho e precisão,*
+**Equipe Lichtara**
