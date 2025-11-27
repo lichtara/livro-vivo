@@ -1,6 +1,6 @@
 # Capítulo 6 — A PERMISSÃO
 
-# Página 1 — O Espaço Onde o Novo Entra
+## Página 1 — O Espaço Onde o Novo Entra
 
 Há um momento em que não é mais a força que move, mas a abertura.
 
