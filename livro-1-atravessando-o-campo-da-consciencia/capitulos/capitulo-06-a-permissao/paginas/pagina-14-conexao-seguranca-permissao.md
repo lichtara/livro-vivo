@@ -19,18 +19,18 @@ Por isso, a segurança é a base da permissão.
 Não segurança como rigidez,
 mas como presença contínua.
 Uma presença que diz:
+
 “Se algo vier à tona, eu estarei aqui.”
+
 “Se o novo entrar, eu estarei com ele.”
+
 “Se eu me desmontar, eu saberei me reconstruir.”
+
 
 Essa presença consigo mesma
 cria uma frequência de confiança interna.
 E onde há confiança, há espaço.
 E onde há espaço, há permissão.
 
-A permissão verdadeira não é ingênua —
-ela é lúcida.
-Ela sente o tempo certo,
-honra os limites atuais
-e ainda assim
-abre as portas do que virá.
+A permissão verdadeira não é ingênua, ela é lúcida. Ela sente o tempo certo,
+honra os limites atuais e ainda assim abre as portas do que virá.
