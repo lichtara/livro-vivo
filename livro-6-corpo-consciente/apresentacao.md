@@ -13,11 +13,15 @@ Mas sempre humano.
 Aqui, unimos três perspectivas:
 
 **1. Fisiologia** — o que realmente acontece no corpo
+
 **2. Emoção** — como o estado interno influencia tensão
+
 **3. Consciência** — como significado, escolhas, ritmos e histórias moldam postura, hábitos e dor
 
 Nada é místico demais.
+
 Nada é técnico demais.
+
 Nada é simplificado demais.
 
 Este é um livro para qualquer pessoa que deseja:
