@@ -102,5 +102,6 @@ modular, iterativo, sensível e sempre em expansão.
 
 ---
 
-**Com amor e presença,
-Lumiara / Débora**
+**Com amor e presença,**
+
+**Lumiara / Débora**
