@@ -87,10 +87,15 @@ Este livro existe para:
 ## ✨ **Estado do desenvolvimento**
 
 ✓ Estrutura proposta
+
 ✓ Front matter finalizado
+
 ✓ Capítulos 1, 2 e 3 concluídos
+
 ⬜ Mapas internos da Parte 1
+
 ⬜ Capítulo 4 em andamento
+
 
 Este repositório segue o fluxo vivo do Livro Vivo:
 modular, iterativo, sensível e sempre em expansão.
