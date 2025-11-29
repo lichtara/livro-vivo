@@ -3,7 +3,7 @@
 Documento vivo para ajustar o encadeamento de partes, capítulos e mapas do livro.
 
 
-## ** PROPOSTA DE ESTRUTURA (viva, clara e madura)**
+## **PROPOSTA DE ESTRUTURA (viva, clara e madura)**
 
 ### **INTRODUÇÃO — Uma nova forma de ouvir o corpo**
 
