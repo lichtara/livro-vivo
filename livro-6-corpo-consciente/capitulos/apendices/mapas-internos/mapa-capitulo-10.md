@@ -167,19 +167,19 @@ A dor aparece como **pedido de reorganização**.
        │                       │                        │
        ▼                       ▼                        ▼
 
-┌────────────────┐   ┌──────────────────┐     ┌───────────────────┐
-│ EIXO 1          │   │ EIXO 2           │     │ EIXO 3             │
-│ EXPECTATIVA     │   │ AUTOINVISIBILIDADE │   │ RUPTURA / PERDA     │
-│ “dei mais         │   “não posso aparecer”│   “perdi meu apoio”     │
-└────────────────┘   └──────────────────┘     └───────────────────┘
+┌────────────────┐   ┌─────────────────────┐     ┌───────────────────┐
+│ EIXO 1         │   │ EIXO 2              │     │ EIXO 3            │
+│ EXPECTATIVA    │   │ AUTOINVISIBILIDADE  │     │ RUPTURA / PERDA   │
+│ “dei mais      │   │“não posso aparecer” │     │“perdi meu apoio   │
+└────────────────┘   └─────────────────────┘     └───────────────────┘
 
                  └──────────────▼──────────────┘
 
                            ┌───────────────┐
-                           │   EIXO 4       │
-                           │   AMEAÇA       │
-                           │ “não estou     │
-                           │  segura aqui”  │
+                           │   EIXO 4      │
+                           │   AMEAÇA      │
+                           │ “não estou    │
+                           │  segura aqui” │
                            └───────────────┘
 
               → Tensão crônica • Lombar • Peito • Mandíbula • Diafragma
