@@ -5,7 +5,7 @@
 Esta mandala te mostra o que acontece quando **a dor não nasce de um músculo**, mas de uma **relação** — passada, presente ou imaginada.
 
 Ela revela os **quatro eixos** que estruturam a dor relacional e como cada eixo se traduz em sensações corporais específicas.
-
+ 
 ---
 
 # **⭕ NÚCLEO — “Dor que tenta proteger vínculo”**
