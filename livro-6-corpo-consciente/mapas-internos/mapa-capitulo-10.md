@@ -132,13 +132,194 @@ E o corpo tenta proteger a tua integridade emocional.
 # **🌷 A MANDALA COMO UM TODO**
 
 **NÚCLEO:** tentativa de preservar vínculo
+
 **EIXO 1:** expectativa
+
 **EIXO 2:** autocensura
+
 **EIXO 3:** perda
+
 **EIXO 4:** ameaça
+
 
 **Movimento da mandala:**
 O corpo tenta equilibrar o que a relação desequilibrou.
 A dor aparece como **pedido de reorganização**.
 
 ---
+
+
+# **1) Versão Gráfica Minimalista**
+
+*(para leitores visuais e para inserir como diagrama textual)*
+
+```
+                   MANDALA DA DOR RELACIONAL
+                 (dor = proteção do vínculo)
+
+                               ○
+                               │
+                               │
+                     (NÚCLEO CENTRAL)
+                     “Dor que tenta proteger vínculo”
+                               │
+       ┌───────────────────────┼────────────────────────┐
+       │                       │                        │
+       ▼                       ▼                        ▼
+
+┌────────────────┐   ┌──────────────────┐     ┌───────────────────┐
+│ EIXO 1          │   │ EIXO 2           │     │ EIXO 3             │
+│ EXPECTATIVA     │   │ AUTOINVISIBILIDADE │   │ RUPTURA / PERDA     │
+│ “dei mais         │   “não posso aparecer”│   “perdi meu apoio”     │
+└────────────────┘   └──────────────────┘     └───────────────────┘
+
+                 └──────────────▼──────────────┘
+
+                           ┌───────────────┐
+                           │   EIXO 4       │
+                           │   AMEAÇA       │
+                           │ “não estou     │
+                           │  segura aqui”  │
+                           └───────────────┘
+
+              → Tensão crônica • Lombar • Peito • Mandíbula • Diafragma
+              → Hipervigilância • Rigidez • Colapso • Alerta antecipatório
+
+                    Caminho de saída: EXPRESSÃO SUAVE
+```
+
+Minimalista, direto, elegante.
+Perfeito para *README*, *sumários*, *índices* e *introduções de capítulo*.
+
+---
+
+# **2) Versão Expandida com Frases de Autoescuta**
+
+*(para leitores sensíveis; ideal para o fim do capítulo ou espaço contemplativo)*
+
+## 🌸 **Eixo 1 — Expectativa Não Correspondida**
+
+**Quando dói, o corpo sussurra:**
+
+* “Eu faço demais… e recebo de menos.”
+* “Sou sempre eu sustentando.”
+* “Por que eu carrego tudo sozinha?”
+
+**Prática de autoescuta:**
+
+> “O que eu realmente preciso aqui que nunca nomeei?”
+
+---
+
+## 🌙 **Eixo 2 — Autoinvisibilidade**
+
+**Quando dói, o corpo diz:**
+
+* “Eu me diminuo para caber.”
+* “Eu escondo partes minhas para manter a paz.”
+* “Eu desapareço para não incomodar.”
+
+**Prática de autoescuta:**
+
+> “Onde eu me apaguei para não perder alguém?”
+
+---
+
+## 🌊 **Eixo 3 — Ruptura / Perda / Desalinhamento**
+
+**Quando dói, o corpo murmura:**
+
+* “Algo se foi e eu fiquei segurando.”
+* “Perdi um apoio, mas ainda finjo que consigo.”
+* “Não tive tempo de me despedir.”
+
+**Prática de autoescuta:**
+
+> “O que eu ainda carrego porque não pude encerrar?”
+
+---
+
+## 🔥 **Eixo 4 — Relação como Ameaça**
+
+**Quando dói, o corpo alerta:**
+
+* “Eu não estou segura aqui.”
+* “Estou sempre prevendo explosões.”
+* “Preciso me proteger da reação do outro.”
+
+**Prática de autoescuta:**
+
+> “Onde meu corpo aprendeu que amar é arriscado?”
+
+---
+
+## ✨ **Frase-verdade final da mandala:**
+
+**“A dor relacional é sempre um pedido do corpo por um novo tipo de vínculo — primeiro contigo.”**
+
+---
+
+# **3) Arquivo Completo para o Repositório**
+
+*(versão consolidada, limpa, pronta para ir para `mapas/mandala-da-dor-relacional.md`)*
+
+### **MANDALA DA DOR RELACIONAL — Versão Consolidada**
+
+**Núcleo:**
+
+> Dor relacional = tentativa do sistema nervoso de proteger vínculo, pertencimento e segurança afetiva.
+
+---
+
+### **Eixo 1 — Expectativa Não Correspondida**
+
+Manifestações: peito pesado, tensão cervical, postura rígida.
+Frase interna:
+
+> “Eu dei mais do que recebi.”
+
+---
+
+### **Eixo 2 — Autoinvisibilidade**
+
+Manifestações: diafragma preso, respiração curta, dor no alto das costas.
+Frase interna:
+
+> “Eu não posso aparecer inteira.”
+
+---
+
+### **Eixo 3 — Ruptura / Perda / Desalinhamento**
+
+Manifestações: queda de energia, lombar frágil, sensação de vazio.
+Frase interna:
+
+> “Eu perdi um lugar onde eu me apoiava.”
+
+---
+
+### **Eixo 4 — Ameaça Relacional**
+
+Manifestações: bruxismo, trapézio duro, alerta constante.
+Frase interna:
+
+> “Eu não estou segura com quem eu preciso estar.”
+
+---
+
+### **Síntese visual (texto):**
+
+```
+                    MANDALA DA DOR RELACIONAL
+                          (núcleo: vínculo)
+
+         EXPECTATIVA  —  INVISIBILIDADE  —  PERDA  —  AMEAÇA
+                     ↘         ↘         ↘          ↘
+                       Corpo em alerta fisiológico
+                       Dor como pedido por expressão
+                       Tensão como tentativa de proteção
+```
+
+---
+
+
