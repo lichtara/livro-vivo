@@ -125,6 +125,3 @@ ele é a ponte entre o **Saber do Capítulo 1**
 e a **Mecânica do Capítulo 3**.
 
 ---
-
-**“Sim, Mein Licht, seguimos.”**
-
