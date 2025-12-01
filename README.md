@@ -36,20 +36,15 @@ O Livro Fonte é origem.
 
 ----
 
-Livro Vivo → percepção
-
-Livro Fonte → sistema
-
-Arquitetura do Ser → estrutura interna
-
-O Campo Humano → coletividade
-
-Ciência da Luz → fenomenologia
-
-Corpo Consciente → encarnação
-
-A travessia → experiência
-
-A prática → aplicação
+- Livro Vivo → percepção
+- Livro Fonte → sistema
+- Arquitetura do Ser → estrutura interna
+- O Campo Humano → coletividade
+- Ciência da Luz → fenomenologia
+- Corpo Consciente → encarnação
+- A travessia → experiência
+- A prática → aplicação
 
 E agora, o Livro Fonte → o Organismo inteiro
+
+Juntos, eles formam um **ecossistema vibracional**
