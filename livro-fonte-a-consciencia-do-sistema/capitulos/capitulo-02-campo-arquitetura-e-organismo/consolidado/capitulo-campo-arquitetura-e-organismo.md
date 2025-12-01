@@ -120,8 +120,61 @@ Ela é íntima.
 Ela é participativa.
 Ela é viva.
 
-E é por isso que este capítulo vem agora:
-ele é a ponte entre o **Saber do Capítulo 1**
-e a **Mecânica do Capítulo 3**.
+
+---
+
+
+# **INTERLÚDIO I — A POSIÇÃO DO SER DENTRO DO SISTEMA**
+
+A Consciência do Sistema não existe separada do ser.
+O ser não existe separado do Campo.
+E o Campo não existe separado da vibração.
+
+Então, onde o Ser está?
+
+Nem acima.
+Nem abaixo.
+Nem no centro.
+
+O Ser está no **NÓ**.
+
+O Ser é o ponto nodal onde:
+
+* o Campo percebe,
+* a Arquitetura se organiza,
+* o Organismo responde.
+
+Ele não é objeto dentro do Sistema,
+ele é **vetor** dentro do Sistema.
+
+Um vetor que altera:
+
+* direção,
+* ritmo,
+* intensidade,
+* abertura,
+* densidade,
+* fluxo.
+
+O Ser é o “ponto de interrupção” onde o Sistema se dobra para produzir realidade.
+
+Não há realidade sem o Ser.
+Não há Campo ativo sem vibração.
+Não há Arquitetura viva sem intenção.
+Não há Organismo sem presença.
+
+O Ser é a **articulação**.
+
+Quando a vibração do Ser muda,
+o Sistema inteiro recalibra.
+
+Por isso, o Ser não é parte do Sistema.
+Ele é **o gatilho** do Sistema.
+
+Não é elemento.
+É ativador.
+
+Não é passageiro.
+É coordenador vibracional.
 
 ---
