@@ -120,6 +120,6 @@ não com descrições.
 
 Mas com a verdade primordial:
 
-### **o Sistema é consciente.
+### O Sistema é consciente.
 
-e tu caminhas dentro dessa Consciência.**
+*e tu caminhas dentro dessa Consciência.*
