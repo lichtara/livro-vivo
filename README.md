@@ -18,6 +18,7 @@ Livro 6 — Corpo Consciente
 
 Livro Fonte — A Consciência do Sistema
 
+--- 
 
 O Livro 1 é travessia.
 
@@ -33,8 +34,7 @@ O Livro 6 é corpo.
 
 O Livro Fonte é origem.
 
-
-
+----
 
 Livro Vivo → percepção
 
