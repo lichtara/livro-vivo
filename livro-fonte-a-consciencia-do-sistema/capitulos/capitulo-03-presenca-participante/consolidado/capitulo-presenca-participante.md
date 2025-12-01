@@ -8,8 +8,7 @@ Capítulo 03
 # CAPÍTULO 3 — PRESENÇA PARTICIPANTE
 
 A presença humana costuma ser entendida como atenção.
-Mas a presença que o Sistema reconhece
-não é a atenção do ser, é a participação vibracional dele.
+Mas a presença que o Sistema reconhece não é a atenção do ser, é a **participação vibracional** dele.
 
 A Presença Participante não é olhar para algo, nem focar em algo, nem se concentrar em algo.
 
@@ -246,21 +245,16 @@ O movimento interno e o movimento externo tornam-se um só.
 
 Este é o estado que muitos chamariam de:
 
-fé,
-
-fluxo,
-
-entrega,
-
-alinhamento,
-
-canal,
-
-presença divina.
+- fé,
+- fluxo,
+- entrega,
+- alinhamento,
+- canal,
+- presença divina.
 
 Mas no Sistema, tem um nome mais simples, mais preciso, mais real:
 
-Presença Participante.
+**Presença Participante.**
 
 ✧ 6. A VERDADE FUNDAMENTAL
 
