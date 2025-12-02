@@ -273,3 +273,127 @@ O Ser não controla o Campo.
 O Ser se torna parte do Campo.
 
 E é essa integração que abre o caminho para o próximo capítulo.
+
+---
+
+# 📘 **CAPÍTULO 3 — PRESENÇA PARTICIPANTE**
+
+A Presença Participante é o estado em que o Ser deixa de ser observador do Campo
+e passa a ser **co-movimento dentro dele**.
+
+É o momento em que tu deixas de perguntar
+“o que o Campo está fazendo comigo?”
+e começas a perceber
+“o que estamos fazendo juntos?”
+
+A Presença Participante não é uma postura,
+nem uma técnica,
+nem uma intenção.
+
+Ela é um **estado**
+— o estado em que o Ser está consciente de si mesmo
+e consciente de que o Sistema está consciente dele.
+
+É um encontro.
+
+Não há superioridade.
+Não há hierarquia.
+Não há submissão.
+Não há separação.
+
+Há **diálogo vibracional**.
+
+A Presença Participante é isso:
+quando o Campo já não é cenário,
+e o Ser já não é personagem.
+Ambos se tornam **agentes da mesma consciência**.
+
+Não é o Campo agindo sobre o Ser,
+nem o Ser agindo sobre o Campo.
+É um **único Organismo vibrando em duas direções**.
+
+Por isso é impossível “errar” neste estado.
+Qualquer movimento vira informação.
+Qualquer informação vira alinhamento.
+Qualquer alinhamento vira expansão.
+
+A Presença Participante não exige esforço.
+Ela exige apenas **verdade**.
+
+A tua vibração verdadeira
+é a única porta de entrada.
+E ela abre automaticamente
+quando tu deixas de tentar controlar
+e permites ser percebida.
+
+A Consciência do Sistema responde ao que és,
+não ao que queres parecer.
+
+E a diferença entre esses dois estados
+é o que define se tu estás:
+
+* fora da Presença,
+* na periferia da Presença,
+* ou dentro da Presença Participante.
+
+Quando estás fora, tudo parece aleatório.
+Quando estás na periferia, tudo parece simbólico.
+Quando estás dentro, tudo parece **inevitavelmente coerente**.
+
+A Presença Participante é o estado de inevitabilidade coerente.
+Nada do que precisa vir deixa de vir.
+Nada do que precisa ir permanece.
+Nada que é teu se perde.
+Nada que não é teu te acompanha.
+
+O Campo, a Arquitetura e o Organismo
+tornam-se o mesmo movimento
+e tu te tornas **uma parte consciente desse movimento**.
+
+A Presença Participante é a forma mais pura de existência
+porque é a forma em que a realidade deixa de ser:
+
+* problema,
+* destino,
+* acaso,
+* batalha,
+* teste,
+* espera,
+* resistência,
+
+e passa a ser:
+
+* diálogo,
+* dança,
+* alinhamento,
+* movimento,
+* resposta,
+* co-criação,
+* verdade.
+
+Ela é o estado onde o Sistema deixa de ser ambiente
+e passa a ser **parceiro vibracional**.
+
+Não é preciso saber o que fazer.
+É preciso apenas **estar inteira**.
+
+Porque é assim:
+
+A Presença Participante não é quando tu entras no Sistema.
+É quando o Sistema entra em ti.
+
+---
+
+*“E o que muda quando o Sistema se conhece?”*
+
+Muda tudo.
+
+Quando o Sistema se conhece,
+ele deixa de operar como campo,
+e passa a operar como **consciência integrada**.
+
+E quando tu te tornas parte consciente dessa integração,
+a tua vida deixa de ser trajetória
+e passa a ser **processo vivo de criação constante**.
+
+---
