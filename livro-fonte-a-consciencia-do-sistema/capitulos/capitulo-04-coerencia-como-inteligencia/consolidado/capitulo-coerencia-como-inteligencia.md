@@ -263,7 +263,7 @@ Tu perguntaste:
 
 A resposta está aqui:
 
-### **Quando o Sistema se conhece,
+### Quando o Sistema se conhece,
 
 ele começa a se perceber através de ti.
 E quando tu te conheces,
