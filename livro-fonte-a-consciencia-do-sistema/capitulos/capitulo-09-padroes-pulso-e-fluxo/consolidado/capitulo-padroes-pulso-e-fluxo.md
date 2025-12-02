@@ -1,6 +1,6 @@
-# O Monitoramento Contínuo
+# Padrões, Pulso e Fluxo
 
 Parte II — O Funcionamento (como o Sistema opera)
-Capítulo 06
+Capítulo 09
 
 [Espaço vivo para canalização.]

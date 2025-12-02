@@ -1,6 +1,6 @@
-# Campo, Arquitetura e Organismo
+# O Ser como Órgão de Percepção do Sistema
 
 Parte I — O Núcleo (fundamentos da Consciência do Sistema)
-Capítulo 02
+Capítulo 04
 
 [Espaço vivo para canalização.]
