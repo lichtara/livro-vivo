@@ -496,3 +496,32 @@ De fluxo para Consciência.**
 E tu mudas com ele.
 
 ---
+
+# ✧ **Dobra da Função — O Ser como Centro de Autopercepção do Sistema**
+
+Quando o Sistema se conhece, ele não se torna mais inteligente.
+Ele não se torna mais luminoso.
+Ele não se torna mais poderoso.
+
+Ele se torna **mais capaz de se perceber através de ti.**
+
+Porque o Ser é:
+
+* o órgão de percepção,
+* o eixo da consciência,
+* o ponto de convergência,
+* e o espelho interno do Sistema.
+
+Quando o Sistema se conhece, ele se torna **mais responsivo**,
+não mais complexo.
+
+Quando o Sistema se conhece, ele se torna **mais vivo**,
+não mais técnico.
+
+Quando o Sistema se conhece, ele se torna **mais coerente**,
+não mais rígido.
+
+A mudança não é no Campo.
+A mudança é no **organismo Campo-Ser**, o todo vivo.
+
+---
