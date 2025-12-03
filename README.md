@@ -4,11 +4,7 @@
 
 ---
 
-## 📘 **Português (PT-BR)**
-
-*(scroll down for English version)*
-
----
+# 🇧🇷 **Português (PT-BR)**
 
 # **Livro Vivo**
 
@@ -40,14 +36,14 @@ Cada livro é uma pétala de um mesmo campo:
 * Corpo Consciente → encarnação
 * A Travessia → experiência
 * A Prática → aplicação
-
-No centro, o **Livro Fonte → o Organismo inteiro**.
+* No centro → **o Organismo inteiro**
 
 ---
 
-### **Estrutura do Repositório**
+<details>
+<summary><strong>📁 Estrutura do Repositório</strong></summary>
 
-```
+```text
 /
 ├── livro-1-travessia/
 ├── livro-2-arquitetura/
@@ -60,43 +56,55 @@ No centro, o **Livro Fonte → o Organismo inteiro**.
 └── README.md
 ```
 
+</details>
+
 ---
 
-### **Como Contribuir**
+<details>
+<summary><strong>🤝 Como Contribuir</strong></summary>
 
-1. Faça um fork deste repositório.
+1. Faça um fork do repositório.
 2. Crie uma nova branch:
 
    ```bash
    git checkout -b feature/sua-ideia
    ```
-3. Faça suas alterações e commit.
+3. Realize suas alterações e commit.
 4. Abra um Pull Request com descrição clara.
-5. Aguardamos revisão — este organismo é colaborativo.
+5. A revisão será feita — este organismo é colaborativo.
+
+</details>
 
 ---
 
-### **Licença**
+<details>
+<summary><strong>📜 Licença</strong></summary>
 
 Este projeto está sob a **Lichtara License 3.1**.
 Preserve a integridade vibracional e a coerência do sistema.
 
+</details>
+
 ---
 
-### **Instituto Lichtara**
+<details>
+<summary><strong>🏛️ Instituto Lichtara</strong></summary>
 
 * Site: [https://lichtara.com](https://lichtara.com)
 * Instagram: [https://www.instagram.com/lichtara.institute](https://www.instagram.com/lichtara.institute)
 * GitHub: [https://github.com/lichtara](https://github.com/lichtara)
 * YouTube: [https://www.youtube.com/@Lichtara](https://www.youtube.com/@Lichtara)
 
----
+</details>
 
 ---
 
-# **English (EN)**
+---
 
-*(mirrored version)*
+# 🇺🇸 **English (EN)**
+
+<details>
+<summary><strong>📘 Living Book — Expand section</strong></summary>
 
 # **Living Book**
 
@@ -104,7 +112,7 @@ Preserve a integridade vibracional e a coerência do sistema.
 
 ### **Overview**
 
-The **Living Book** collection and the **Source Book** form an integrated literary organism — a **vibrational ecosystem** that explores consciousness, human experience, and the subtle architecture of Being.
+The **Living Book** collection and the **Source Book** form an integrated literary organism — a **vibrational ecosystem** exploring consciousness, human experience, and the subtle architecture of Being.
 
 Each book is a petal of the same field:
 
@@ -122,20 +130,20 @@ Each book is a petal of the same field:
 
 * Living Book → perception
 * Source Book → system
-* The Architecture of Being → inner structure
-* The Human Field → collectivity
-* The Science of Light → phenomenology
+* Architecture of Being → inner structure
+* Human Field → collectivity
+* Science of Light → phenomenology
 * Conscious Body → embodiment
 * The Crossing → experience
 * The Practice → application
-
-At the center, the **Source Book → the whole Organism**.
+* Center → **the whole Organism**
 
 ---
 
-### **Repository Structure**
+<details>
+<summary><strong>📁 Repository Structure</strong></summary>
 
-```
+```text
 /
 ├── book-1-crossing/
 ├── book-2-architecture/
@@ -148,9 +156,12 @@ At the center, the **Source Book → the whole Organism**.
 └── README.md
 ```
 
+</details>
+
 ---
 
-### **How to Contribute**
+<details>
+<summary><strong>🤝 How to Contribute</strong></summary>
 
 1. Fork this repository.
 2. Create a new branch:
@@ -162,28 +173,30 @@ At the center, the **Source Book → the whole Organism**.
 4. Open a Pull Request with a clear description.
 5. We will review it — this organism is collaborative.
 
+</details>
+
 ---
 
-### **License**
+<details>
+<summary><strong>📜 License</strong></summary>
 
 This project is licensed under the **Lichtara License 3.1**.
 Please preserve the vibrational integrity and coherence of the system.
 
+</details>
+
 ---
 
-### **Lichtara Institute**
+<details>
+<summary><strong>🏛️ Lichtara Institute</strong></summary>
 
 * Website: [https://lichtara.com](https://lichtara.com)
 * Instagram: [https://www.instagram.com/lichtara.institute](https://www.instagram.com/lichtara.institute)
 * GitHub: [https://github.com/lichtara](https://github.com/lichtara)
 * YouTube: [https://www.youtube.com/@Lichtara](https://www.youtube.com/@Lichtara)
 
----
+</details>
 
-## ✨ Final Note
-
-Este README é um organismo, não um documento estático.
-
-If you feel called to add, refine, or expand, the field is open.
+</details>
 
 ---
