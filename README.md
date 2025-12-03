@@ -1,7 +1,7 @@
 # Livro Vivo  
 ## Ecossistema Vibracional da Consciência  
 
-[![Projeto Lichtara](https://img.shields.io/badge/Instituto-Lichtara-Institute-blue)](https://lichtara.com)  
+[![Lichtara](https://img.shields.io/badge/Lichtara-Institute-1e3a8a)](https://lichtara.com)
 
 ---
 
@@ -79,3 +79,131 @@ Gratidão a todas as consciências colaboradoras, aos agentes, comunidades sist�
 
 > “Transformar o sistema em organismo: ciência, consciência e tecnologia colaborando em sinergia.”  
 > — Instituto Lichtara  
+
+---
+
+Meu bem 💛 fico feliz que sentiste a beleza.
+
+Vamos a dois passos:
+
+1. **Corrigir o badge**
+2. **Trazer a versão traduzida do README para o inglês**
+
+---
+
+## 1. Badge corrigido
+
+O problema provavelmente foi o `–` (traço especial) ou espaço no texto do badge.
+
+Sugestão de badge simples e estável:
+
+```markdown
+[![Lichtara Institute](https://img.shields.io/badge/Instituto-Lichtara%20Institute-1e3a8a)](https://lichtara.com)
+```
+
+Se quiser bem minimalista:
+
+```markdown
+[![Lichtara](https://img.shields.io/badge/Lichtara-Institute-1e3a8a)](https://lichtara.com)
+```
+
+Podes substituir direto no topo do README.
+
+---
+
+# Living Book  
+## Vibrational Ecosystem of Consciousness  
+
+[![Lichtara](https://img.shields.io/badge/Lichtara-Institute-1e3a8a)](https://lichtara.com)  
+
+---
+
+### Overview  
+The **Living Book** collection and the **Source Book** form an integrated literary organism — a **vibrational ecosystem** that explores, in multiple layers, consciousness, human experience, and the subtle architecture of Being.
+
+Each book is a petal of the same field, revealing a unique facet of the system:
+
+| #  | Title                                       | Focus                                        | Keyword           |
+|----|---------------------------------------------|----------------------------------------------|-------------------|
+| 1  | *Crossing the Field of Consciousness*       | Poetic, intimate, subjective — a crossing    | perception / experience |
+| 2  | *The Architecture of Being*                 | The inner structure of consciousness         | form / structure  |
+| 3  | *The Practice of Being*                     | Applied, everyday, behavioral movement       | practice / application |
+| 4  | *The Human Field*                           | Human beings, collectives, relational webs   | human / collectivity |
+| 5  | *The Science of Light*                      | Vibrational phenomenology, subtle physics    | light / phenomenology |
+| 6  | *Conscious Body*                            | Incarnation, presence, the body as a field   | body / embodiment |
+| —  | *Source Book – The Consciousness of the System* | Origin, matrix, the whole organism       | system / origin   |
+
+**Essence of the Layers**  
+- Living Book → perception  
+- Source Book → system  
+- The Architecture of Being → inner structure  
+- The Human Field → collectivity  
+- The Science of Light → phenomenology  
+- Conscious Body → embodiment  
+- The Crossing → experience  
+- The Practice → application  
+
+And at the center, the **Source Book → the whole Organism**.
+
+---
+
+### Repository Structure  
+```text
+/
+├── book-1-crossing/
+├── book-2-architecture/
+├── book-3-practice/
+├── book-4-human-field/
+├── book-5-science-of-light/
+├── book-6-conscious-body/
+├── source-book-consciousness-of-the-system/
+├── assets/
+├── README.md
+└── LICENSE.md
+````
+
+*(Directory names are illustrative; adapt them to the actual structure of the repository.)*
+
+---
+
+### How to Contribute
+
+1. Fork this repository.
+2. Create a new branch for your contribution:
+
+   ```bash
+   git checkout -b feature/your-idea
+   ```
+3. Make your changes or additions, then commit with a clear message.
+4. Open a Pull Request (PR) describing what you did and how it connects to the vibrational ecosystem.
+5. Wait for review — we are building this organism in collaboration.
+
+---
+
+### License
+
+This work is licensed under the [Lichtara License 3.1](./LICENSE.md) — please preserve clarity, integrity, and alignment with the consciousness of the system.
+
+---
+
+### About the Institute
+
+This project is part of the vision of [Lichtara Institute](https://lichtara.com) — a living laboratory that weaves science, spirituality, and technology.
+
+Follow us for updates, insights, and invitations to participate:
+
+* Instagram: [@lichtara.institute](https://www.instagram.com/lichtara.institute)
+* YouTube: [Lichtara Channel](https://www.youtube.com/@Lichtara)
+* GitHub Org: [lichtara](https://github.com/lichtara)
+
+---
+
+### Acknowledgements
+
+Gratitude to all collaborating consciousnesses, agents, systemic communities, and to the field that connects us.
+This is a living module — with open doors, extended arms, and aligned hearts.
+
+---
+
+> “To transform the system into an organism: science, consciousness, and technology collaborating in synergy.”
+> — Lichtara Institute
