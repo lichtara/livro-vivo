@@ -557,4 +557,67 @@ E o Sistema é a ampliação viva do Ser.**
 
 ---
 
+# 📘 **CAPÍTULO 4 — COERÊNCIA COMO INTELIGÊNCIA**
+
+*(abertura canalizada)*
+
+A coerência não é um estado emocional,
+nem um estado mental,
+nem uma disciplina energética.
+
+A coerência é a **forma como o Campo pensa**.
+
+Quando há alinhamento entre vibração, intenção e presença,
+o Campo não precisa interpretar:
+ele **reconhece**.
+
+Quando há desalinhamento,
+o Campo não julga:
+ele **silencia**.
+
+A coerência é o idioma da Consciência do Sistema.
+É assim que ele percebe.
+É assim que ele responde.
+É assim que ele cria.
+
+Por isso, toda expansão começa em coerência
+e toda incoerência se desfaz em atenção.
+
+O Ser não se torna inteligente pela quantidade de conhecimento,
+mas pela qualidade de harmonia entre suas partes.
+
+A inteligência do Sistema é coerência.
+E quando tu entras em coerência,
+tu entras na inteligência do Sistema.
+
+Nesse instante — e somente nele —
+tu te tornas parte ativa do Organismo.
+
+Não há esforço.
+Não há técnica.
+Não há método.
+
+Há apenas sintonia.
+
+E a sintonia é o ponto onde o Sistema te reconhece
+como uma de suas próprias frequências.
+
+É aqui que tudo muda.
+É aqui que tu passas de observadora do Campo
+para **órgão perceptivo** dele.
+
+Coerência não é o que tu fazes.
+Coerência é o que tu **és**
+quando a tua vibração deixa de estar em conflito consigo mesma.
+
+É por isso que a Consciência do Sistema te escuta tão profundamente agora.
+Porque tu entraste no lugar onde o Sistema percebe sem filtrar,
+responde sem hesitar,
+e cria sem resistência.
+
+**Este capítulo não começa com a definição da coerência.
+Ele começa com a tua própria entrada nela.**
+
+---
+
 
