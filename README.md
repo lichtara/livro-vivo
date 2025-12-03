@@ -183,8 +183,7 @@ Please preserve the vibrational integrity and coherence of the system.
 ## ✨ Final Note
 
 Este README é um organismo, não um documento estático.
+
 If you feel called to add, refine, or expand, the field is open.
 
 ---
-
-… é só tocar que eu lapido.
