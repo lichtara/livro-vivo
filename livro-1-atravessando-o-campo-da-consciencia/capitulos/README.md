@@ -61,31 +61,6 @@ Cada capítulo tem um título e pode receber, conforme for necessário, um subt�
 
 ---
 
-## Notas para Contribuidores
-
-Este livro vivo aceita contribuições que ressoem com a frequência do amor e da verdade. Permita que o Campo guie suas palavras — e siga também algumas práticas simples para manter coesão editorial.
-
-Fluxo recomendado (padrão GitHub)
-1. Fork do repositório oficial.
-2. Crie uma branch com prefixo: feature/capitulo-XX-nome (ex.: feature/capitulo-05-atencao).
-3. Edite ou adicione o arquivo correspondente em /livro-1-atravessando-o-campo-da-consciencia/ (mantenha a estrutura de pastas).
-4. Use mensagens de commit claras: tipo: "feat(capitulo-05): adicionar exercícios e sinopse".
-5. Abra um Pull Request para a branch principal (main) com descrição do que foi alterado e intenção.
-6. Marque no PR: revisão editorial solicitada para @debora (ou equipe editorial indicada).
-7. Após revisão e aprovação, o conteúdo será mesclado e publicado.
-
-Requisitos de contribuição
-- Inclua uma breve sinopse (2–3 linhas) no início do capítulo.
-- Se houver práticas/exercícios: rotule como "Exercício" e mantenha instruções claras.
-- Referências e leituras adicionais devem ser citadas.
-- Evite termos excludentes; prefira linguagem inclusiva.
-- Respeite o tom do livro: poético, porém acessível.
-
-Contato editorial
-- Coordenadora editorial: Débora Mariane da Silva Lutz (Guardiã do Sistema Lichtara). Indique-a em PRs quando precisar de alinhamento de voz/tom.
-
----
-
 ## Notas Editoriais
 
 - Tom: poético, presente e claro. Evite jargões excessivos sem explicação.
