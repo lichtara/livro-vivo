@@ -1,8 +1,6 @@
-# pagina-03
-
 **TERCEIRA PÁGINA**
 
-Há um momento muito específico em que você começa a perceber o Campo não apenas como sensação, mas como **dinâmica viva**. Esse é o instante em que você nota que nada do que acontece ao seu redor é isolado; tudo faz parte de um movimento maior — um movimento que responde ao teu estado interno antes mesmo que você se dê conta disso.
+O Campo se revela como dinâmica viva quando você percebe que nada do que acontece ao seu redor é isolado. Há sempre um movimento maior atravessando encontros, silêncios e ambientes — um movimento que responde ao teu estado interno antes mesmo que você se dê conta disso.
 
 O Campo não é estático.
 
@@ -67,8 +65,7 @@ A vida muda — porque finalmente você começa a caminhar pelo que é real, nã
 
 E é aqui que o Campo revela sua função mais madura:
 
-**o Campo não antecipa acontecimentos,
-ele antecipa coerência.**
+**o Campo não antecipa acontecimentos, ele antecipa coerência.**
 
 Ele mostra quando algo está alinhado antes de acontecer.
 
