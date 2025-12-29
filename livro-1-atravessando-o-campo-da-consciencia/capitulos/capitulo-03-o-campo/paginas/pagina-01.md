@@ -6,13 +6,13 @@ Existe um espaço entre você e tudo o que toca a sua vida. Um espaço tão suti
 
 O Campo não é energia externa, nem mistério espiritual, nem território místico reservado aos sensíveis. O Campo é humano. É o tecido vibracional onde o teu corpo registra o mundo antes que a tua mente o interprete. É a camada onde presença vira percepção, e percepção vira direção.
 
-Você já sentiu isso mais vezes do que consegue lembrar. Quando entra em um ambiente e algo em você se ajusta antes mesmo de olhar ao redor. Quando uma conversa muda de profundidade sem que ninguém mude o tom de voz. Quando uma pessoa se aproxima e o ar parece abrir — ou contrair. Quando uma sensação chega primeiro, e a explicação só aparece depois. Nada disso é acaso. Tudo isso é Campo.
+Você já sentiu isso mais vezes do que consegue lembrar. Quando entra em um ambiente e algo em você se ajusta antes mesmo de olhar ao redor. Quando uma conversa muda de profundidade sem que ninguém mude o tom de voz. Quando uma pessoa se aproxima e o ar parece abrir, ou contrair. Quando uma sensação chega primeiro, e a explicação só aparece depois. Nada disso é acaso. Tudo isso é Campo.
 
 O Campo é a resposta silenciosa da vida ao que você está oferecendo agora.
 
 Quando você está coerente, o Campo se abre: as conversas fluem, a intuição acende, as coisas se encaixam sem esforço. Quando você está tensa, ele se estreita: as percepções ficam confusas, as relações perdem nitidez, as situações travam antes mesmo de começar. Quando você está fragmentada, o Campo se dispersa: nada se sustenta, nada aprofunda, nada engata.
 
-O mundo não reage ao que você diz — reage ao que você vibra.
+O mundo não reage ao que você diz, reage ao que você vibra.
 
 O Campo é essa vibração ganhando forma.
 
@@ -24,7 +24,7 @@ Perceber o Campo é começar a ver o mundo com os olhos do corpo.
 
 É escutar a vida sem depender de sinais explícitos.
 
-É compreender que tudo se move por dinâmicas — não por discursos.
+É compreender que tudo se move por dinâmicas, não por discursos.
 
 O Campo não dá respostas. O Campo dá direção.
 
