@@ -30,7 +30,7 @@ Ele abre ou fecha. Aproxima ou afasta. Expande ou contrai. Sustenta ou dissolve.
 
 E essa direção é sempre precisa.
 
-A canalização verdadeira nasce daqui — não como acesso a algo externo, mas como acesso ao ponto onde o Campo fica claro o bastante para que a informação apareça sem distorção. A informação não vem “de fora”: ela emerge quando a tua forma interna deixa espaço para ser atravessada pela verdade.
+A canalização verdadeira nasce daqui. Não como acesso a algo externo, mas como acesso ao ponto onde o Campo fica claro o bastante para que a informação apareça sem distorção. A informação não vem “de fora”: ela emerge quando a tua forma interna deixa espaço para ser atravessada pela verdade.
 
 Este capítulo existe para te ensinar isso:
 
