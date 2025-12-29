@@ -1,5 +1,3 @@
-# pagina-06
-
 **SEXTA PÁGINA**
 
 **A RESPONSABILIDADE PERCEPTIVA: quando você deixa de sofrer o Campo e passa a influenciá-lo**
@@ -36,13 +34,7 @@ O Campo não é uma força externa atuando sobre você.
 
 Quando entendi isso, uma chave virou:
 
-> Eu não sou vítima do Campo.
-> 
-> 
-> Eu sou parte dele.
-> 
-> E, muitas vezes, eu sou quem o organiza.
-> 
+> Eu não sou vítima do Campo. Eu sou parte dele. E, muitas vezes, eu sou quem o organiza.
 
 Essa percepção pode assustar quem ainda se sente pequena demais, frágil demais, sensível demais para acreditar que influencia o ambiente.
 
