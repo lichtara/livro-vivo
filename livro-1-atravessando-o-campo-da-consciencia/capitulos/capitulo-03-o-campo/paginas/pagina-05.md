@@ -1,8 +1,6 @@
-# pagina-05
-
 **QUINTA PÁGINA — CAPÍTULO 3**
 
-O Campo não se comunica por símbolos extraordinários, nem por sinais reservados aos iniciados. Ele se comunica pela maneira como a vida se ajusta ao seu redor. É um movimento tão sutil que só se torna óbvio depois que aprendemos a escutar — e tão constante que opera mesmo quando estamos distraídos. O Campo está sempre falando, porque a vida está sempre conversando com você, mesmo quando você esquece de responder.
+O Campo fala pelo modo como a vida se ajusta ao teu redor. Ele se expressa em microdeslocamentos quase imperceptíveis, mas tão constantes que seguem operando mesmo quando você está distraída. A vida conversa com você o tempo inteiro — e o Campo é o idioma silencioso dessa conversa.
 
 O Campo orienta sem dar ordens.
 
