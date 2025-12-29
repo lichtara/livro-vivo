@@ -1,5 +1,3 @@
-# pagina-01
-
 **PRIMEIRA PÁGINA**
 
 Existe um espaço entre você e tudo o que toca a sua vida. Um espaço tão sutil que quase nunca o nomeamos, mas tão determinante que nada do que acontece realmente ocorre fora dele. É ali, nesse intervalo invisível entre o teu estado interno e o mundo, que a realidade começa a se formar. É ali que começa o Campo.
