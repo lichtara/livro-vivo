@@ -1,8 +1,6 @@
-# pagina-04
-
 **QUARTA PÁGINA**
 
-Existe um tipo de comunicação que acontece antes de qualquer palavra ser dita. Ela não depende de tom de voz, de intenção declarada ou de algum acordo tácito entre as pessoas. Ela acontece no espaço entre duas presenças — e esse espaço se organiza com uma precisão tão profunda que frequentemente chamamos de “clima”, “sensação”, “energia do ambiente”, quando, na verdade, estamos falando do Campo.
+Essa comunicação silenciosa já está acontecendo enquanto você lê. Ela não depende de tom de voz nem de intenção declarada. Ela se organiza no espaço entre duas presenças — e é nesse intervalo que o clima muda, que a sensação se altera e que a relação começa a existir.
 
 O Campo não é apenas algo que você percebe.
 
