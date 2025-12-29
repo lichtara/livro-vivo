@@ -3,35 +3,26 @@
 Este não é um livro para ser consumido.
 É um campo para ser atravessado.
 
-O que está registrado aqui não foi escrito para explicar um sistema, transmitir uma doutrina ou organizar um corpo de conhecimento fechado.
-Foi escrito para **sustentar coerência** entre aquilo que nasce, aquilo que se diz e aquilo que passa a existir quando algo é compreendido.
-
-Este livro não pede adesão.
-Não pede concordância.
-Não pede fé.
-
-Ele pede apenas uma coisa — que não pode ser terceirizada:
-
-**presença responsável.**
+O que vive aqui não existe para informar, ensinar ou convencer,
+mas para sustentar coerência entre o que nasce, o que se diz
+e o que passa a existir quando algo é compreendido.
 
 Ao ler, você não assume um papel.
-Não se torna membro, iniciado, autorizado ou representante de nada.
+Não se torna membro, iniciado ou autorizado.
 
-Você apenas aceita que **compreender é um ato**,
-e que todo ato gera consequência, ainda que silenciosa.
+Você apenas reconhece que **compreender é um ato**,
+e que todo ato produz efeito.
 
-Nada aqui opera no regime da neutralidade.
-Não porque haja imposição, mas porque **vida não é neutra** — e linguagem, quando viva, também não é.
+Nada aqui opera sob neutralidade.
+Não por imposição, mas porque vida e linguagem viva não são neutras.
 
-Se este texto tocar você, algo em você tocará o mundo.
-Essa é a única premissa.
-
-O *Livro Vivo* não ensina o que fazer com isso.
+Este livro não diz o que fazer com isso.
 Ele apenas se recusa a fingir que isso não acontece.
 
-Se você seguir, siga com honestidade.
+Se seguir, siga com presença.
 Se parar, pare em paz.
 
-Ambas são formas de cuidado.
+**Este livro permanece vivo apenas enquanto é lido assim.
+E cuida de quem o lê na mesma medida em que é cuidado.**
 
-Este livro permanece vivo apenas enquanto é lido assim.
+---
