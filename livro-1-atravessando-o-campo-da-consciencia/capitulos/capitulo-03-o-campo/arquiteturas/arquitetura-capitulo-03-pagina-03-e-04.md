@@ -4,7 +4,7 @@
 ### **O CAMPO COMO ORGANIZADOR DE REALIDADE**
 
 *(A página-ponte entre o Capítulo 3 e o Capítulo 4 — o ponto onde o livro sai da percepção e entra na manifestação.)*
-
+ 
 ---
 
 ## **1. O TOM DA PÁGINA**
