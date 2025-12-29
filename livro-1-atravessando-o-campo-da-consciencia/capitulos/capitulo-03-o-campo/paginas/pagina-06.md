@@ -59,10 +59,10 @@ Quando isso se torna claro, a vida ganha outra textura.
 
 Você percebe que:
 
-- não é o ambiente que te invade — é você que está aberta demais;
-- não são as pessoas que te drenam — é você que perdeu eixo;
-- não é o mundo que te pressiona — é o seu corpo que contraiu antes de perceber;
-- não são vibrações externas que te desorganizam — é a tua forma interna que ficou fragmentada.
+Quando você se sente invadida, é o sinal de que sua abertura perdeu eixo;
+Quando se sente drenada, é a própria forma interna pedindo reorganização;
+Não é o mundo que te pressiona — é o seu corpo que contraiu antes de perceber;
+Não são vibrações externas que te desorganizam — é a tua forma interna que ficou fragmentada.
 
 O Campo não cria o que você sente.
 
