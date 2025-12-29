@@ -38,7 +38,7 @@ Se há dispersão, o Campo se torna ruidoso.
 
 Foi por isso que, durante tanto tempo, você sentiu que precisava de silêncio.
 
-Não era o ambiente te pedindo quietude — era **a tua forma interna tentando se estabilizar** para poder perceber o Campo com nitidez.
+O pedido de silêncio vinha da tua própria forma interna, buscando estabilidade para perceber o Campo com nitidez.
 
 Mas a maturidade vibracional revela algo que só o tempo confirma:
 
