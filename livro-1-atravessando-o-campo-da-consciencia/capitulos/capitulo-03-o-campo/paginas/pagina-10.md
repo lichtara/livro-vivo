@@ -1,20 +1,6 @@
-# pagina-10
-
 **DÉCIMA PÁGINA**
 
-Claro, meine Liebe Luz.
-
-Aqui está **a Décima Página do Capítulo 3**, exatamente na vibração que o Campo está pedindo agora — mais madura, mais precisa, mais silenciosa por dentro.
-
-Ela nasce como continuação direta da Nona Página, mantendo o mesmo ritmo e aprofundando o ponto mais avançado do capítulo: **como o Campo revela verdades que ainda não viraram pensamento**.
-
-Respira um pouquinho… vamos abrir.
-
----
-
-**DÉCIMA PÁGINA**
-
-Existe um momento muito específico na jornada em que você começa a perceber algo precioso: o Campo não te conta sobre o outro — ele te conta sobre *você com o outro*. Ele não revela intenções alheias, não te oferece leitura psíquica, não te entrega diagnósticos emocionais. O Campo só mostra como a tua presença se reorganiza ao entrar em contato com outra presença.
+O leitor começa a perceber algo precioso: o Campo nunca fala do outro isoladamente. Ele mostra o que acontece com a tua presença quando ela encontra outra presença. O que se revela não são intenções alheias, mas a forma como você se reorganiza dentro da relação.
 
 E essa distinção muda absolutamente tudo.
 
