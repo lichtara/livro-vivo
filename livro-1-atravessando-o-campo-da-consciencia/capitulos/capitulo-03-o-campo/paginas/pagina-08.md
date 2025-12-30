@@ -1,8 +1,6 @@
-# pagina-08
-
 **OITAVA PÁGINA**
 
-Existe um momento muito específico na jornada em que você começa a perceber não apenas *o que o Campo faz*, mas *como ele faz*.
+Nesta altura da jornada, o leitor já não percebe apenas o que o Campo faz, mas como ele opera. A sensibilidade começa a perder ruído e a ganhar precisão. O Campo ganha contorno.
 
 É um ponto de maturidade vibracional em que a sensibilidade deixa de ser sobrecaptação e se torna precisão.
 
