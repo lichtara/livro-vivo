@@ -1,4 +1,4 @@
-**DÉCIMA QUINTA PÁGINA — O CAMPO COMO ARQUITETURA DA CAMINHADA**
+O CAMPO COMO ARQUITETURA DA CAMINHADA
 
 O Campo não se revela apenas nos momentos de pausa e presença consciente. Ele se revela, sobretudo, enquanto você se move. É no deslocamento que a sua forma interna começa a desenhar a realidade que se aproxima, e é ali que se torna visível que o Campo não é apenas o que você percebe, mas o caminho que se cria enquanto caminha.
 
