@@ -34,7 +34,7 @@ A maior parte das pessoas vive reagindo ao Campo como se ele fosse externo:
 
 “Esse clima está estranho.”
 
-Mas o Campo não está “pesado”, “difícil”, “estranho”.
+O Campo responde exatamente ao que você vibra agora.
 
 O Campo está **correspondendo ao que você vibra agora**.
 
