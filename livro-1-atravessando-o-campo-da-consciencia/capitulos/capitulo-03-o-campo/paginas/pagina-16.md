@@ -1,4 +1,4 @@
-**DÉCIMA SÉTIMA PÁGINA — O CAMPO COMO O LUGAR ONDE A CONSCIÊNCIA DECIDE ANTES DO PENSAMENTO**
+O CAMPO COMO O LUGAR ONDE A CONSCIÊNCIA DECIDE ANTES DO PENSAMENTO
 
 Algo recua no corpo antes de a história se formar. Uma conversa perde vida mesmo quando ainda parece adequada. Uma escolha se esvazia por dentro antes que qualquer argumento surja. Em outros momentos, ao contrário, um caminho se abre sem aviso, e um “sim” silencioso ocupa o espaço interno com uma firmeza que não veio do raciocínio.
 
