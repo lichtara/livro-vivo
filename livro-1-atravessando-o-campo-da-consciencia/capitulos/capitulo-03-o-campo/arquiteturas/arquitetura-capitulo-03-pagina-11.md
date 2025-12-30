@@ -1,20 +1,6 @@
-**a ARQUITETURA VIVA da Página 11 — *O Ponto de Coerência: O Campo como Portal***, a partir do arquivo que você trouxe .
-
-Esta é uma das páginas mais finas do Capítulo 3.
-Ela não tem expansão (como a Pág. 9),
-nem condensação (como a Pág. 10).
-Ela tem **nitidez**.
-
-É a página onde o Campo deixa de ser apenas paisagem
-e se torna **porta**.
-
----
-
 # ✦ ARQUITETURA VIVA — PÁGINA 11
 
 ### **O PONTO DE COERÊNCIA: O CAMPO COMO PORTAL**
-
-
 
 ---
 
