@@ -1,4 +1,4 @@
-**DÉCIMA SEXTA PÁGINA — O CAMPO COMO CURVATURA DA REALIDADE**
+O CAMPO COMO CURVATURA DA REALIDADE
 
 A realidade raramente se aproxima em linha reta. Ela se apresenta por inclinações sutis, desviando rotas, alterando encontros, maturando decisões em silêncio. Essa curvatura não nasce dos acontecimentos, mas do Campo que você sustenta enquanto vive.
 
