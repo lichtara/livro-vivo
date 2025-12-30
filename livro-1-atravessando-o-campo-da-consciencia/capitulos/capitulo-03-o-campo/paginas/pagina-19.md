@@ -1,6 +1,6 @@
-**VIGÉSIMA PÁGINA — O CAMPO COMO ORGANIZADOR DE REALIDADE**
+**VIGÉSIMA PÁGINA — O CAMPO COMO ORGANIZADOR DE REALIDADE** 
 
-A percepção, em certo ponto da travessia, deixa de ser apenas sensação e começa a ganhar estrutura. O leitor percebe que o Campo não é apenas algo que se sente, mas algo que organiza silenciosamente a forma como a vida se move ao redor. A pergunta que passa a pulsar não é mais sobre acontecimentos, mas sobre direção: o que faz a realidade se inclinar para um lado e não para outro?
+A percepção, em certo ponto da travessia, deixa de ser apenas sensação e começa a ganhar estrutura. O leitor percebe que o Campo não é apenas algo que se sente, mas algo que organiza silenciosamente a forma como a vida se move ao redor. A pergunta que passa a pulsar não é mais sobre acontecimentos, mas sobre direção: o que faz a realidade se inclinar para um lado e não para outro? 
 
 A resposta não está no destino, mas na forma interna. Antes de qualquer gesto, palavra ou decisão, algo se ajusta por dentro. Um ruído cai, um eixo se recompõe, uma percepção se realinha. Esse movimento reorganiza imediatamente o Campo, porque o Campo é a extensão natural da forma vibrando para fora. Ele não cria fatos, mas inclina tendências, e são essas tendências que definem quais possibilidades ganham corpo.
 
