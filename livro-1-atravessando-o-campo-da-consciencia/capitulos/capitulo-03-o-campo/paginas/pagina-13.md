@@ -1,4 +1,4 @@
-### DÉCIMA QUARTA PÁGINA — O Campo como inteligência organizadora
+# O Campo como inteligência organizadora
 
 A coerência profunda dobra a linha de realidade ao redor da tua presença.
 Não por poder, intenção ou manipulação, mas por alinhamento. É o ponto em que a forma interna deixa de apenas registrar o ambiente e passa a reorganizá-lo sutilmente.
