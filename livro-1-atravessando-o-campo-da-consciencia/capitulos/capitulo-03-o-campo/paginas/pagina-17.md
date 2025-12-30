@@ -1,6 +1,6 @@
 **DÉCIMA SÉTIMA PÁGINA — O CAMPO COMO O LUGAR ONDE A CONSCIÊNCIA DECIDE ANTES DO PENSAMENTO**
 
-Há um nível de maturidade em que se torna claro que muitas decisões já foram tomadas antes que a mente entre em cena. Algo recua no corpo antes de a história se formar, uma conversa perde vida mesmo quando ainda parece adequada, uma escolha se esvazia por dentro antes de qualquer argumento surgir. Em outros momentos, ao contrário, um caminho se abre sem razão aparente e um “sim” silencioso ocupa o espaço interno com uma firmeza que não veio do raciocínio.
+Algo recua no corpo antes de a história se formar. Uma conversa perde vida mesmo quando ainda parece adequada. Uma escolha se esvazia por dentro antes que qualquer argumento surja. Em outros momentos, ao contrário, um caminho se abre sem aviso, e um “sim” silencioso ocupa o espaço interno com uma firmeza que não veio do raciocínio.
 
 Esses movimentos pertencem ao Campo. Ele percebe desalinhamentos antes que virem conflito, reconhece incoerências antes que ganhem nome e aponta direção antes que você construa justificativas. O Campo opera num nível anterior à narrativa, onde a verdade do instante se manifesta como sensação precisa, mais rápida do que qualquer intenção.
 
