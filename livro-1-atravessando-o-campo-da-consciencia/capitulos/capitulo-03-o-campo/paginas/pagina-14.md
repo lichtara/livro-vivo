@@ -1,18 +1,9 @@
-# pagina-14
+### DÉCIMA QUARTA PÁGINA — O Campo como inteligência organizadora
 
-**DÉCIMA QUARTA PÁGINA — SEGUNDA METADE DO CAPÍTULO 3**
+A coerência profunda dobra a linha de realidade ao redor da tua presença.
+Não por poder, intenção ou manipulação, mas por alinhamento. É o ponto em que a forma interna deixa de apenas registrar o ambiente e passa a reorganizá-lo sutilmente.
 
-### **O Ponto de Curvatura: quando o Campo começa a alterar probabilidades**
-
-Chega um momento da jornada — tão silencioso que quase ninguém percebe quando atravessa — em que o Campo deixa de ser apenas leitura e se torna **curvatura**. É o ponto em que a forma interna deixa de apenas registrar o ambiente e passa a reorganizá-lo sutilmente.
-
-Não é poder.
-
-Não é intenção.
-
-Não é manipulação vibracional.
-
-É coerência.
+Essa curvatura nasce da coerência profunda — aquela que não depende de esforço, nem de estado emocional, nem de controle.
 
 A coerência profunda — aquela que não depende de esforço, nem de estado emocional, nem de controle — tem um efeito específico:
 
