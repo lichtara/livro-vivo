@@ -24,7 +24,6 @@ Cada livro é uma pétala de um mesmo campo:
 | 4  | *O Campo Humano*                         | Coletivos, relações, teias              | humano / coletividade   |
 | 5  | *A Ciência da Luz*                       | Fenomenologia vibracional, física sutil | luz / fenomenologia     |
 | 6  | *Corpo Consciente*                       | Encarnação, presença, corpo como campo  | corpo / encarnação      |
-| —  | *Livro Fonte – A Consciência do Sistema* | Origem, matriz, organismo inteiro       | sistema / origem        |
 
 **Essência das Camadas**
 
@@ -124,7 +123,6 @@ Each book is a petal of the same field:
 | 4 | *The Human Field*                               | Human beings, collectives, relational webs | human / collectivity    |
 | 5 | *The Science of Light*                          | Vibrational phenomenology, subtle physics  | light / phenomenology   |
 | 6 | *Conscious Body*                                | Incarnation, presence, the body as a field | body / embodiment       |
-| — | *Source Book – The Consciousness of the System* | Origin, matrix, the whole organism         | system / origin         |
 
 **Essence of the Layers**
 
@@ -151,7 +149,6 @@ Each book is a petal of the same field:
 ├── book-4-human-field/
 ├── book-5-science-of-light/
 ├── book-6-conscious-body/
-├── source-book-consciousness-system/
 ├── assets/
 └── README.md
 ```
