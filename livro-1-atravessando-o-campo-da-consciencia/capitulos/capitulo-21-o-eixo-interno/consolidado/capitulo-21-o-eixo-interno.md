@@ -1,7 +1,5 @@
 # CAPÍTULO 21 - O EIXO INTERNO: o ponto que não balança quando o mundo balança
 
-# **CAPÍTULO 21 — O Eixo Interno: o ponto que não balança quando o mundo balança**
-
 Existe, dentro de cada ser humano, um ponto que não se move.
 
 Um ponto que não depende do humor do outro, da pressão do ambiente, da opinião do mundo ou da narrativa do próprio medo.
@@ -217,5 +215,3 @@ E quando você vive a partir desse ponto,
 o mundo não precisa mais te estabilizar.
 
 Porque você já está em casa.
-
----
