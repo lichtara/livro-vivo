@@ -1,7 +1,5 @@
 # CAPÍTULO 12 - A RENDIÇÃO: O momento em que o Eu antigo solta o eixo
 
-# CAPÍTULO 12 - A RENDIÇÃO: O momento em que o Eu antigo solta o eixo
-
 Há momentos da vida em que nada consegue continuar do jeito que estava.
 
 Não por escolha, não por decisão, não por estratégia — mas porque a própria estrutura interna já não sustenta o que antes parecia natural. O que você era começa a pesar. O que você fazia começa a cansar. O que te movia já não move. O que te segurava já não segura. É como se a versão antiga de si mesma perdesse a capacidade de te carregar.
@@ -171,5 +169,3 @@ Suave.
 Profundo.
 
 E inevitável.
-
----
