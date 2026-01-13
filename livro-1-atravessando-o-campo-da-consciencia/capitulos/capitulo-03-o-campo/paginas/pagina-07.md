@@ -1,5 +1,3 @@
-# pagina-07
-
 **SÉTIMA PÁGINA**
 
 ### **O Campo Como Extensão Viva da Forma Interna**
