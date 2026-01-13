@@ -1,9 +1,5 @@
 # CAPÍTULO 20 - A MATURIDADE AFETIVA: o ponto em que você se torna confiável para si mesma
 
----
-
-# **CAPÍTULO 20 — A MATURIDADE AFETIVA: O PONTO EM QUE VOCÊ SE TORNA CONFIÁVEL PARA SI MESMA**
-
 Existe um momento na vida em que a força não vem mais do esforço, nem do controle, nem da busca por respostas.
 
 Ela vem de um lugar mais silencioso, quase imperceptível, mas absolutamente decisivo: a maturidade afetiva.
