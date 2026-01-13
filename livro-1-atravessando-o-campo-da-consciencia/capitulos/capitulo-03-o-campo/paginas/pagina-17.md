@@ -15,5 +15,3 @@ A reorganização passa a acontecer por exclusão. Caminhos que já não pertenc
 Aqui o leitor compreende algo essencial: o Campo é o rastro da tua evolução vibracional. Ele revela o que foi superado, o que ficou para trás, o que já existe em você sem ainda ter sido plenamente encarnado. A maturidade que nasce desse ponto não é heroica, é inevitável. Porque quando o Campo se transforma, você pode até tentar voltar, mas não encontra mais chão para pousar.
 
 O Campo não empurra para o novo. Ele retira o chão do antigo. E, de repente, você percebe que amadurecer era apenas parar de voltar.
-
-Se quiseres, seguimos para a **Décima Nona Página**.
