@@ -17,7 +17,6 @@ Não transmite — edifica.
 
 Organizar o invisível é firmar uma linguagem onde antes havia só impulso.
 É honrar a informação como vida.
-É reconhecer:
-✨ *Canalizar é assumir a coautoria da realidade.*
+É reconhecer: *Canalizar é assumir a coautoria da realidade.*
 
----
+
