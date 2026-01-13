@@ -1,7 +1,5 @@
 # CAPÍTULO 18 - O ALINHAMENTO: O momento em que você para de se trair
 
-# **CAPÍTULO 18 - O ALINHAMENTO: O MOMENTO EM QUE VOCÊ PARA DE SE TRAIR**
-
 Existe um ponto da jornada em que a vida deixa de girar em torno do que você tenta sustentar e começa a girar em torno do que é verdadeiro. Não é um momento dramático nem uma revelação extraordinária. É, ao contrário, um instante quase discreto, mas tão definitivo que você o reconhece pelo corpo antes de reconhecê-lo pela mente. É nesse instante que algo se endireita por dentro, como se a sua estrutura interna finalmente alcançasse a própria forma. Esse instante se chama alinhamento.
 
 O alinhamento não chega como euforia. Não chega como certeza. Não chega como vitória. Chega como uma honestidade que não oferece mais alternativas. É a percepção de que não há mais espaço para sustentar versões de si que não correspondem ao que você de fato sente, sabe e precisa. É a queda de uma espécie de teatro interno que você nem sabia que estava encenando. É a interrupção suave — mas irrevogável — das pequenas traições diárias que você fazia contra si mesma para não decepcionar quem estava ao seu redor.
