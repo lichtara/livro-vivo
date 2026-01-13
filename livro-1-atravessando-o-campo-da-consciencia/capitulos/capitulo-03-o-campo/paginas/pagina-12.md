@@ -1,4 +1,4 @@
-**DÉCIMA TERCEIRA PÁGINA — O CAMPO COMO MODULADOR DA TUA LINHA DE REALIDADE**
+**DÉCIMA SEGUNDA PÁGINA — O CAMPO COMO MODULADOR DA TUA LINHA DE REALIDADE**
 
 Cada estado interno abre uma linha de realidade diferente, e é por essa linha que você realmente caminha. Essa linha não é fixa, nem predeterminada; ela se reorganiza em silêncio conforme a forma interna se transforma.
 
