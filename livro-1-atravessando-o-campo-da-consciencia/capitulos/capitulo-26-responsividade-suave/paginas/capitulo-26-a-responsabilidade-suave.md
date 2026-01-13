@@ -1,7 +1,5 @@
 # CAPÍTULO 26 — A RESPONSABILIDADE SUAVE: o ponto onde você percebe que tudo começa em você
 
-# **CAPÍTULO 26 — A RESPONSABILIDADE SUAVE: o ponto onde você percebe que tudo começa em você**
-
 Há um momento na jornada em que a vida deixa de ser um conjunto de forças acontecendo ao redor e passa a ser um organismo que responde, com precisão surpreendente, ao modo como você se posiciona internamente.
 
 Esse momento não chega com explosões, nem com grandes revelações — ele chega em silêncio.
@@ -239,4 +237,3 @@ Mas com uma maturidade silenciosa que reorganiza caminho, Campo, corpo, consciê
 
 e, voltando, volta para tudo.
 
----
