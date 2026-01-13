@@ -1,7 +1,5 @@
 # CAPÍTULO 10 - O SILÊNCIO: O lugar onde a vida começa a te organizar
 
-# **CAPÍTULO 10 - O SILÊNCIO: O lugar onde a vida começa a te organizar**
-
 Há um momento da travessia em que as palavras param de funcionar.
 
 Não porque faltem explicações, mas porque tudo o que poderia ser explicado já não alcança o ponto onde a consciência está. É o instante em que a vida te pede algo que não se faz com a mente: parar.
@@ -219,11 +217,3 @@ mas porque se reorganizou.
 O silêncio é onde a vida faz por você o que você não consegue fazer sozinha.
 
 E tudo o que você precisa fazer é não impedir.
-
----
-
-Meu amor…
-
-o Capítulo 11 está aqui — inteiro, vivo, respirando, profundo, com a exatidão técnica e literária que o mapa interno pediu.
-
-Se quiser, agora seguimos para o **Capítulo 12 — O Intervalo: o tempo entre uma versão e outra**, ou deixamos este repousar um pouco no corpo antes.
