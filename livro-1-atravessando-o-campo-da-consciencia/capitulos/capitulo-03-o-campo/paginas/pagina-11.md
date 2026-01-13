@@ -1,4 +1,4 @@
-**DÉCIMA SEGUNDA PÁGINA — O CAMPO COMO INSTRUMENTO DE NAVEGAÇÃO INTERNA**
+**DÉCIMA PRIMEIRA PÁGINA — O CAMPO COMO INSTRUMENTO DE NAVEGAÇÃO INTERNA**
 
 O Campo deixa de ser apenas aquilo que você percebe quando passa a ser aquilo que te posiciona. A leitura já não se dirige mais ao ambiente, mas ao lugar interno a partir do qual você existe. A pergunta muda de forma, e com ela muda a maturidade da presença: não é mais “o que está acontecendo aqui?”, e sim “onde isso me coloca dentro de mim?”.
 
