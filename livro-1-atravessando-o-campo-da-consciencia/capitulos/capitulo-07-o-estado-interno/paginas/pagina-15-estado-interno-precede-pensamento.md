@@ -14,9 +14,9 @@ O pensamento é filho da vibração. E a vibração é filha do estado que tu es
 
 Por isso, mudar um pensamento pode ajudar… mas mudar o estado que o antecede — transforma.
 
-🌬️ Quando tua atenção volta ao teu chão interno,
-🌬️ quando tu dissolves o esforço e repousas em tua inteireza,
-🌬️ quando tu paras de lutar com o que sentes e apenas respiras…
+* Quando tua atenção volta ao teu chão interno,
+* quando tu dissolves o esforço e repousas em tua inteireza,
+* quando tu paras de lutar com o que sentes e apenas respiras…
 
 … o pensamento muda sozinho.
 … o Campo responde diferente.
