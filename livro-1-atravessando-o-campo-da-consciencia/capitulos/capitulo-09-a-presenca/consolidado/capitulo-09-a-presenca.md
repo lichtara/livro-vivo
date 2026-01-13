@@ -1,7 +1,5 @@
 # CAPÍTULO 9 - A PRESENÇA: Quando o mundo começa a responder
 
-# **CAPÍTULO** 9 - A PRESENÇA: Quando o mundo começa a responder
-
 Há um ponto da jornada em que a vida deixa de parecer uma sucessão de acontecimentos externos e passa a se revelar como uma correspondência. Não porque tudo se torna fácil ou milagroso, mas porque algo dentro encontra posição. Quando isso acontece, há uma mudança silenciosa: o mundo começa a responder à sua presença, não às suas palavras, intenções ou expectativas.
 
 A presença não é um comportamento.
@@ -91,5 +89,3 @@ A presença é o ponto final da sua forma interna. É o momento em que tudo aqui
 E quando você está, o mundo responde.
 
 Porque presença é a linguagem que a realidade entende sem tradução.
-
----
