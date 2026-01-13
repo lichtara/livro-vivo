@@ -1,7 +1,5 @@
 # CAPÍTULO 19 - A INTEIREZA: Viver sem dividir o que você sente
 
-# **CAPÍTULO 19 - A INTEIREZA: VIVER SEM DIVIDIR O QUE VOCÊ SENTE**
-
 Há um momento da jornada em que você percebe que a maior parte da dor que carrega não veio do que viveu, mas do modo como aprendeu a se dividir para atravessar o que viveu. Não foi o sentimento que doeu — foi ter sentido uma coisa e ter sido obrigada a agir como se sentisse outra. Não foi o desejo que pesou — foi ter desejado algo e ter se convencido de que não poderia. Não foi a sensibilidade que te vulnerabilizou — foi ter aprendido a escondê-la para não parecer “demais”.
 
 A maior ferida humana é a divisão interna.
