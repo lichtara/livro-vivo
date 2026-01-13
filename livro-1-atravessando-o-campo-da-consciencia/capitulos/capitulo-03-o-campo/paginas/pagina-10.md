@@ -1,4 +1,4 @@
-**DÉCIMA PRIMEIRA PÁGINA — O PONTO DE COERÊNCIA**
+**DÉCIMA PÁGINA — O PONTO DE COERÊNCIA**
 
 A sensibilidade deixa de ser ruído quando a percepção se alinha.
 Nesse ponto, o que antes parecia excesso se torna clareza, e o que antes confundia passa a apenas mostrar.
