@@ -1,7 +1,5 @@
 # CAPÍTULO 24 - A BONDADE ESTRUTURAL: o respeito silencioso por si que muda tudo
 
-# **CAPÍTULO 24 - A BONDADE ESTRUTURAL: o respeito silencioso por si que muda tudo**
-
 Há um tipo de bondade que não depende de doçura.
 
 Não depende de palavras gentis.
