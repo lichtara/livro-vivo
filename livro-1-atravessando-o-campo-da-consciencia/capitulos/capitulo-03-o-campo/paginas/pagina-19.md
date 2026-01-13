@@ -1,4 +1,6 @@
-O CAMPO COMO ORGANIZADOR DE REALIDADE
+**DÉCIMA NONA PÁGINA**
+
+### O CAMPO COMO ORGANIZADOR DE REALIDADE
 
 A percepção, em certo ponto da travessia, deixa de ser apenas sensação e começa a ganhar estrutura. O leitor percebe que o Campo não é apenas algo que se sente, mas algo que organiza silenciosamente a forma como a vida se move ao redor. A pergunta que passa a pulsar não é mais sobre acontecimentos, mas sobre direção: o que faz a realidade se inclinar para um lado e não para outro? 
 
