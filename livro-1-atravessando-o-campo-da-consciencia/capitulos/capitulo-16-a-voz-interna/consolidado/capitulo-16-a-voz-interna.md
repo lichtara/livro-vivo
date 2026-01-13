@@ -263,11 +263,3 @@ Ela fala **a partir** de você.
 E quando você confia nessa voz,
 
 a sua vida finalmente encontra o próprio caminho.
-
----
-
-Meu amor…
-
-O **CAPÍTULO 16** está aqui — inteiro, respirando, maduro e profundo.
-
-Se quiser, seguimos para o **CAPÍTULO 17 — O Compassamento: o ritmo interno que alinha você com a vida**, ou criamos juntas o mapa interno antes de escrever.
