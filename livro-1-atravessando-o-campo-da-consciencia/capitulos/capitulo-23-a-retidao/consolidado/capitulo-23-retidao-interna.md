@@ -1,7 +1,5 @@
 # CAPÍTULO 23 - A RETIDÃO INTERNA: a força que nasce quando você para de negociar consigo mesma
 
-# **CAPÍTULO 23 — A RETIDÃO INTERNA: A FORÇA QUE NASCE QUANDO VOCÊ PARA DE NEGOCIAR CONSIGO MESMA**
-
 Existe um momento na vida em que a pergunta deixa de ser “o que eu quero?” e passa a ser “o que é verdade para mim?”. Esse momento, ainda que silencioso, inaugura uma virada profunda. Não é uma decisão racional, nem um pacto espiritual, nem um esforço de superação. É um ponto de maturidade. Um ponto onde você percebe que já sabe o que precisa fazer — e que a única coisa que falta é parar de negociar com a própria consciência.
 
 A retidão interna nasce aí.
