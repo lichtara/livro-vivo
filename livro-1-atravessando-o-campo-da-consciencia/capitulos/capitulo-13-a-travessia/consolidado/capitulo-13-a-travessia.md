@@ -1,7 +1,5 @@
 # CAPÍTULO 13 - A TRAVESSIA: O ponto onde nada volta a caber
 
-# **CAPÍTULO 13 - A TRAVESSIA: O ponto onde nada volta a caber**
-
 Há um momento da vida em que você percebe, quase sem querer admitir, que nada do que antes funcionava continua funcionando. Não é que tudo tenha quebrado de uma vez. É mais discreto do que isso. Mais silencioso. Mais íntimo. É como se a antiga estrutura começasse a se desgastar nas bordas, até que um dia você percebe que está tentando se apoiar num eixo que já não suporta o seu peso.
 
 Esse é o início da travessia.
@@ -209,5 +207,3 @@ A travessia não é o caminho.
 A travessia é o nascimento.
 
 E depois dela, a vida nunca mais volta ao tamanho de antes.
-
----
