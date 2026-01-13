@@ -1,7 +1,5 @@
 # CAPÍTULO 14 - A LEMBRANÇA: A parte de você que sempre soube
 
-# CAPÍTULO 14 - A LEMBRANÇA: A parte de você que sempre soube
-
 Existe um momento silencioso na jornada em que tudo o que você viveu, estudou, buscou, tentou compreender e organizar parece se curvar a algo ainda mais simples. Não é uma revelação. Não é um milagre. Não é um novo conhecimento que chega de fora. É um reconhecimento que se acende por dentro.
 
 A lembrança.
