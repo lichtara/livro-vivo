@@ -1,4 +1,6 @@
-O TEMPO COMO CAMADA DO CAMPO
+**DÉCIMA OITAVA PÁGINA**
+
+### O TEMPO COMO CAMADA DO CAMPO
 
 O leitor começa a notar, quase sem perceber, que nunca esteve simplesmente “lendo” o mundo. Sempre esteve habitando o Campo que antecede cada acontecimento. Antes das palavras, antes das decisões, antes dos fatos, algo já se organizava por dentro e ao redor, como se a própria realidade aguardasse um lugar onde pousar.
 
