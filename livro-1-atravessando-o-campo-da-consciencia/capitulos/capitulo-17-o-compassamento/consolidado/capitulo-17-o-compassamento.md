@@ -1,7 +1,5 @@
 # CAPÍTULO 17 - O COMPASSAMENTO: O ritmo interno que alinha você com a vida
 
-# **CAPÍTULO 17 — O COMPASSAMENTO: O RITMO INTERNO QUE ALINHA VOCÊ COM A VIDA**
-
 Existe um momento na jornada em que você percebe que não adianta entender, querer, desejar, planejar ou visualizar. Nada se move porque você pensa. Nada se abre porque você força. Nada floresce porque você insiste. A vida não responde ao seu esforço — responde ao seu ritmo.
 
 E é aqui que o caminho muda:
