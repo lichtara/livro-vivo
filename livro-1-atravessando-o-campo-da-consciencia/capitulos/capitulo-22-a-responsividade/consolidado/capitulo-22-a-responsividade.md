@@ -1,7 +1,5 @@
 # CAPÍTULO 22 - A RESPONSIVIDADE: o ponto onde você aprende a responder a si antes de responder ao mundo
 
-# **CAPÍTULO 22 — A RESPONSIVIDADE: O PONTO ONDE VOCÊ APRENDE A RESPONDER A SI ANTES DE RESPONDER AO MUNDO**
-
 Existe um instante quase imperceptível na vida de uma pessoa em que algo muda de direção. Não há rompante, não há revelação grandiosa, não há transformação dramática. Há apenas uma reorganização íntima, quase microscópica, que passa despercebida para quem observa de fora, mas altera o eixo de quem a vive. Esse instante se chama responsividade.
 
 Responsividade não é reação rápida, nem prontidão emocional. Responsividade é o momento em que você se torna capaz de perceber o que sente antes que o mundo molde sua resposta. É a delicada arte de ouvir a si mesma antes de oferecer qualquer gesto ao outro. A responsividade nasce quando você entende que responder ao mundo sem antes responder ao próprio corpo, ao próprio limite e à própria verdade é uma forma sutil de autoabandono.
