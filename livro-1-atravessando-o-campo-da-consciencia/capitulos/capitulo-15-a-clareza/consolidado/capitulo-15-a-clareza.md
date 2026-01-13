@@ -1,7 +1,5 @@
 # CAPÍTULO 15 - A CLAREZA: O pensamento que chega antes do pensamento
 
-# **CAPÍTULO 15 — A CLAREZA: O PENSAMENTO QUE CHEGA ANTES DO PENSAMENTO**
-
 Há um instante na jornada em que a vida deixa de parecer um emaranhado de dúvidas, caminhos possíveis e interpretações conflitantes. Não porque tudo se resolveu, mas porque algo dentro de você se organizou. É como se a névoa que envolvia a percepção se afastasse, não por força ou esforço, mas por um alinhamento silencioso que acontece depois de atravessar aquilo que precisava ser atravessado.
 
 Esse instante se chama clareza.
@@ -199,5 +197,3 @@ Porque a clareza não te dá o futuro inteiro.
 Ela te devolve a confiança para caminhar.
 
 E é a confiança — não a certeza — que constrói a vida.
-
----
