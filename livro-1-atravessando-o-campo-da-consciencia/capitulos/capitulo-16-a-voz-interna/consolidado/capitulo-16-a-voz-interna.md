@@ -1,7 +1,5 @@
 # CAPÍTULO 16 - A VOZ INTERNA: O centro que guia sem fazer barulho
 
-# **CAPÍTULO 16 — A VOZ INTERNA: O CENTRO QUE GUIA SEM FAZER BARULHO**
-
 Há um tipo de orientação que não vem de fora, não vem da mente, não vem das emoções, não vem dos motivos, nem das expectativas. É uma orientação que nasce num lugar tão silencioso que, durante muito tempo, você não consegue escutá-la. Não porque ela seja frágil, mas porque o ruído dentro de você é alto demais.
 
 Essa orientação se chama voz interna.
