@@ -1,7 +1,5 @@
 # CAPÍTULO 11 - O INTERVALO: O tempo entre uma versão e outra
 
-# **CAPÍTULO 11 - O INTERVALO: O tempo entre uma versão e outra**
-
 Há um momento na vida em que nada faz sentido por inteiro.
 
 Não porque você esteja perdida, mas porque deixou de caber na versão anterior e ainda não aprendeu a habitar a nova.
