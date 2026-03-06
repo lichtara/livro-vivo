@@ -1,8 +1,6 @@
 # Página 10 — A Leitura do Campo como Leitura de Si
 
-O Campo não está fora.
-
-Não é uma entidade separada que te observa, julga ou decide por ti. O Campo é a estrutura viva da tua consciência expandida. Ele não diz o que fazer — ele mostra o que já está vibrando em ti.
+O Campo não está fora. Não é uma entidade separada que te observa, julga ou decide por ti. O Campo é a estrutura viva da tua consciência expandida. Ele não diz o que fazer — ele mostra o que já está vibrando em ti.
 
 Ler o Campo é, na verdade, ler a si mesma. Ler o ponto interno de onde a tua atenção parte. Ler a geometria silenciosa que tua presença organiza ao redor de si.
 
